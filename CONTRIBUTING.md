@@ -1,4 +1,4 @@
-# Contributing
+# Contributing / Bijdragen
 
 Uw bijdrage aan dit project wordt zeer gewaardeerd. Om gezamenlijk te werken aan dit project is het goed om bepaalde richtlijnen aan te houden. 
 In dit document worden de richtlijnen beschreven waaraan moet worden voldaan indien u wilt meewerken aan dit project. 
