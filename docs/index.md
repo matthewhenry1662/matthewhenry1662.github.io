@@ -7,7 +7,7 @@ hide:
 
 Welkom op de online versie van de bijbelverklaring van Matthew Henry, of anders gezegd: "LETTERLIJKE EN PRACTICALE VERKLARING VAN HET OUDE EN NIEUWE TESTAMENT".
 
-Deze online versie is gebaseerd op de uitgave van J. H. Kok te Kampen de tweede druk uit 1912. Die betreffende uitgave is opnieuw uit het Engels vertaald door Dr. H Bavinck. Zijn voorrede is ook online beschikbaar gemaakt.
+Voor deze online versie is gebruikt de uitgave van J. H. Kok te Kampen de tweede druk uit 1912. Deze uitgave is opnieuw uit het Engels vertaald door Dr. H. Bavinck. Zijn voorrede is ook online beschikbaar gemaakt.
 
 De verklaring van Matthew Henry is ongetwijfeld een van de meest gebruikte commentaren op de gehele Bijbel.
 Het ging hem niet om geleerde uiteenzettingen, maar om een eenvoudige en praktische verklaring.

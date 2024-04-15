@@ -73,6 +73,7 @@ theme:
 
 nav:
   - Welkom: 'index.md'
+  - Levensschets: 'levensschets.md'
   - Voorrede: 'voorrede.md'
   - 'Genesis': 
     - 'Genesis': 'Genesis/index.md'
