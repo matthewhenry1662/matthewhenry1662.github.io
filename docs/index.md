@@ -1,6 +1,11 @@
+---
+hide:
+  - toc
+---
+
 # Welkom
 
-Welkom op de github repo van de online versie van de bijbelverklaring van Matthew Henry, of anders gezegd: "LETTERLIJKE EN PRACTICALE VERKLARING VAN HET OUDE EN NIEUWE TESTAMENT".
+Welkom op de online versie van de bijbelverklaring van Matthew Henry, of anders gezegd: "LETTERLIJKE EN PRACTICALE VERKLARING VAN HET OUDE EN NIEUWE TESTAMENT".
 
 Deze online versie is gebaseerd op de uitgave van J. H. Kok te Kampen de tweede druk uit 1912. Die betreffende uitgave is opnieuw uit het Engels vertaald door Dr. H Bavinck. Zijn voorrede is ook online beschikbaar gemaakt.
 
@@ -9,6 +14,7 @@ Het ging hem niet om geleerde uiteenzettingen, maar om een eenvoudige en praktis
 
 De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. De online versie bied de mogelijkheid om eenvoudig te kunnen zoeken. Daarnaast is de gedrukte versie niet goedkoop en daaroor bij steeds minder mensen thuis te vinden. We hopen op deze manier meer mensen bekend te maken met deze bijbelverklaring. 
 
-## Meehelpen?
 
-Lees CONTRIBUTING.md
+!!! note "Meehelpen?"
+
+    Het online zetten van deze bijbelverklaring kost veel tijd. Wil je meehelpen? Dat wordt gewaardeerd! De volledige code is beschikbaar op Github, waardoor u eenvoudig kunt meehelpen. 
