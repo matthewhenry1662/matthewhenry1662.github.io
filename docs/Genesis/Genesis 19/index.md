@@ -18,7 +18,8 @@
 18. En Lot zeide tot hen: Neen toch, Heere! 
 19. Zie toch, Uw knecht heeft genade gevonden in Uw ogen, en Gij hebt Uw weldadigheid groot gemaakt, die Gij aan mij gedaan hebt, om mijn ziel te behouden bij het leven; maar ik zal niet kunnen behouden worden naar het gebergte heen, opdat mij niet misschien dat kwaad aankleve, en ik sterve! 
 20. Ziet toch, deze stad is nabij, om derwaarts te vluchten, en zij is klein; laat mij toch derwaarts behouden worden (is zij niet klein?) opdat mijn ziel leve. 
-21. En Hij zeide tot hem: Zie, Ik heb uw aangezicht opgenomen ook in deze zaak, dat Ik deze stad niet omkere waarvan gij gesproken hebt. 22 Haast, behoud u derwaarts; want Ik zal niets kunnen doen, totdat gij daarhenen ingekomen zijt. Daarom noemde men de naam dezer stad Zoar. 
+21. En Hij zeide tot hem: Zie, Ik heb uw aangezicht opgenomen ook in deze zaak, dat Ik deze stad niet omkere waarvan gij gesproken hebt. 
+22. Haast, behoud u derwaarts; want Ik zal niets kunnen doen, totdat gij daarhenen ingekomen zijt. Daarom noemde men de naam dezer stad Zoar. 
 23. De zon ging op boven de aarde, als Lot te Zoar inkwam. 
 24. Toen deed de HEERE zwavel en vuur over Sodom en Gomorra regenen, van de HEERE uit de hemel. 
 25. En Hij keerde deze steden om, en die ganse vlakte, en alle inwoners dezer steden, ook het gewas des lands. 
@@ -34,19 +35,19 @@
 35. En zij gaven haar vader ook dien nacht wijn te drinken, en de jongste stond op, en lag bij hem. En hij werd het niet gewaar in haar nederliggen, noch in haar opstaan. 
 36. En de twee dochters van Lot werden bevrucht van haar vader. 
 37. En de eerstgeborene baarde een zoon, en noemde zijn naam Moab; deze is de vader der Moabieten, tot op dezen dag. 
-38. En de jongste baarde ook een zoon, en noemde zijn naam Ben - ammi; deze is de vader der kinderen Ammons, tot op dezen dag. 
+38. En de jongste baarde ook een zoon, en noemde zijn naam Ben-ammi; deze is de vader der kinderen Ammons, tot op dezen dag. 
 
 ## Inleiding
 
-De inhoud van dit hoofdstuk hebben wij in 2 Petrus 2 vers 6 - 8, waar wij vinden, dat God de steden van Sodom en Gomorra tot as verbrandende, ze met omkering veroordeeld heeft, en de rechtvaardige Lot verlost heeft. Het is de geschiedenis van Sodom’s verderf, en Lots redding van dat verderf. In hoofdstuk 18 lazen wij van Gods neerkomen om de tegenwoordige toestand van Sodom te bezien, wat zijn goddeloosheid was, en wat er voor rechtvaardigen in waren, en nu hebben wij hier de uitslag van dat onderzoek.
+De inhoud van dit hoofdstuk hebben wij in 2 Petrus 2 vers 6-8, waar wij vinden, dat God de steden van Sodom en Gomorra tot as verbrandende, ze met omkering veroordeeld heeft, en de rechtvaardige Lot verlost heeft. Het is de geschiedenis van Sodom’s verderf, en Lots redding van dat verderf. In hoofdstuk 18 lazen wij van Gods neerkomen om de tegenwoordige toestand van Sodom te bezien, wat zijn goddeloosheid was, en wat er voor rechtvaardigen in waren, en nu hebben wij hier de uitslag van dat onderzoek.
 
-I. Uit dat onderzoek bleek, dat Lot zeer goed was, vers 1 - 3, maar het bleek niet, dat er nog zo iemand was.  
-II. De inwoners van Sodom werden bevonden zeer snood en slecht te zijn, vers 4 - 11.  
-III. Daarom werd er zeer bijzonder zorg voor gedragen, om Lot en zijn gezin naar een plaats van veiligheid te laten gaan, vers 12 - 23.  
-IV. De barmhartigheid zich nu hierin verblijd hebbende openbaart de gerechtigheid zich in het verderf van Sodom, en de dood van de vrouw van Lot, vers 24 - 26, met een algemene herhaling van de geschiedenis, vers 27 - 29.  
-V. Een afschuwelijke zonde, waaraan Lot schuldig was door bloedschande te bedrijven met zijn twee dochters, vers 30 - 38.  
+I. Uit dat onderzoek bleek, dat Lot zeer goed was, vers 1-3, maar het bleek niet, dat er nog zo iemand was.  
+II. De inwoners van Sodom werden bevonden zeer snood en slecht te zijn, vers 4-11.  
+III. Daarom werd er zeer bijzonder zorg voor gedragen, om Lot en zijn gezin naar een plaats van veiligheid te laten gaan, vers 12-23.  
+IV. De barmhartigheid zich nu hierin verblijd hebbende openbaart de gerechtigheid zich in het verderf van Sodom, en de dood van de vrouw van Lot, vers 24-26, met een algemene herhaling van de geschiedenis, vers 27-29.  
+V. Een afschuwelijke zonde, waaraan Lot schuldig was door bloedschande te bedrijven met zijn twee dochters, vers 30-38.  
 
-## Genesis 19:1 - 3 
+## Genesis 19:1-3 
 
 Waarschijnlijk waren deze engelen twee van de drie, die zoeven bij Abraham geweest waren, de twee geschapen engelen, die uitgezonden waren om Gods bedoeling met Sodom ten uitvoer te brengen.
 Merk hier op:
@@ -64,11 +65,11 @@ Merk op hem geplaatst werd. Hem, die niet handelde als de anderen, moet het ook 
 a. Toen de engelen, om te zien of zijn uitnodiging van harte gemeend was, haar eerst weigerden aan te nemen, (hetgeen een gewoon gebruik van bescheidenheid is, zonder dat dit in het minst aan waarheid of oprechtheid tekort doet) heeft hun weigering hem slechts des te dringender doen aanhouden, hij hield bij hen zeer aan, vers 3, deels omdat hij volstrekt niet wilde, dat zij zich aan de ongerieflijkheid en het gevaar zouden blootstellen door op straat te overnachten in Sodom, en deels omdat hij zeer naar hun gezelschap en gesprek verlangde. Twee zulke eerlijke gezichten had hij in Sodom nog niet gezien. Zij, die in een slechte plaats wonen moeten het gezelschap op prijs stellen van hen, die wijs en goed zijn, en dit zeer begeren.
 b. Toen de engelen zijn uitnodiging hadden aangenomen, heeft hij hen gul onthaald, hij richtte een maaltijd voor hen aan, en vond die goed besteed aan zulke gasten. Godvruchtige mensen behoren (met beleid en voorzichtigheid) ook edelmoedige, milddadige mensen te zijn.
 
-## Genesis 19:4 - 11
+## Genesis 19:4-11
 
 Nu is het ontwijfelbaar gebleken, dat er alle reden was voor het geroep van Sodom. Wat er die nacht voorviel was genoeg om de maat vol te maken. Want hier bevinden wij:
 
-I. Dat zij allen goddeloos waren, vers 4. De goddeloosheid was algemeen geworden, voor alle snood bedrijf waren zij een van zin. Hier waren oud en jong, lieden uit alle hoeken van de stad, verenigd in dit tumult. De ouden waren de slechtheid nog niet te boven, en de jongen waren er al spoedig rijp voor. Er waren of geen overheidspersonen om de vrede te bewaren en de vreedzamen te beschermen, of de magistraten hielpen zelf mee om het oproer aan de gang te maken. Als de ziekte der zonde epidemisch is geworden, is zij voor elke plaats noodlottig, Jesaja 1:5 - 7.
+I. Dat zij allen goddeloos waren, vers 4. De goddeloosheid was algemeen geworden, voor alle snood bedrijf waren zij een van zin. Hier waren oud en jong, lieden uit alle hoeken van de stad, verenigd in dit tumult. De ouden waren de slechtheid nog niet te boven, en de jongen waren er al spoedig rijp voor. Er waren of geen overheidspersonen om de vrede te bewaren en de vreedzamen te beschermen, of de magistraten hielpen zelf mee om het oproer aan de gang te maken. Als de ziekte der zonde epidemisch is geworden, is zij voor elke plaats noodlottig, Jesaja 1:5-7.
 
 II. Dat hun goddeloosheid ten top was geklommen, zij waren boos en grote zondaars tegen de Heere, Hoofdstuk 13:13, want: 1. Het was de onnatuurlijkste en afschuwelijkste ondeugd, die zij nu wilden bedrijven, een zonde, die nog heden naar hen genoemd wordt, sodomie. Zij hadden zich geheel overgegeven aan die afschuwelijke bewegingen, Romeinen 1:26, 27, die erger dan dierlijk en de eeuwige versmaadheid van de menselijke natuur zijn, en waaraan niet zonder afschuw gedacht kan worden door hen, in wie nog het geringste vonkje van deugd is, nog iets van het natuurlijk licht is overgebleven. Zij, die zich overgeven in onnatuurlijke onreinheid, zijn voor de straf van het eeuwige vuur getekend, zie Judas 1:7.
 
@@ -84,7 +85,7 @@ III. Dat een Godvruchtige door niets minder dan door de macht van een engel uit 
 
 2\. Zij straffen de onbeschoftheid der Sodomieten, vers 11. Zij sloegen hen met verblindheden. Dit diende om een einde te maken aan hun pogingen, door hen onmachtig te maken om er mee voort te gaan. Rechtvaardig werden diegenen met blindheid geslagen, die doof waren geweest voor recht en rede. Geweld drijvende vervolgers worden dikwijls verdwaasd, zodat zij hun boze bedoelingen tegen Gods boden niet kunnen volbrengen, Job 5:14, 15. Toch gingen deze Sodomieten, nadat zij met blindheid waren geslagen nog voort met naar de deur te zoeken, teneinde haar open te breken, totdat zij vermoeid waren. Geen oordelen zullen op zichzelf de verdorven natuur en de boze bedoelingen van de goddelozen veranderen. Indien hun geest niet verblind was geweest zowel als hun ogen, dan zouden zij evenals de tovenaars gezegd hebben: dit is Gods vinger, en zich onderworpen hebben. Het was ook een voorproef van hun algeheel verderf op de volgende dag. Als God op de weg van een rechtvaardig oordeel de mensen verblindt, dan is hun toestand reeds wanhopig, Romeinen 11:8, 9.
 
-## Genesis 19:12 - 14
+## Genesis 19:12-14
 
 Hier hebben wij de voorbereiding voor Lots redding.
 
@@ -97,7 +98,7 @@ Merk op: 1. Hoe Lot hen eerlijk gewaarschuwd heeft. Maakt u op, gaat uit deze pl
 
 2\. Hoe zij zijn waarschuwing minachtten. Hij was in de ogen van zijn schoonzonen als jokkende. Zij dachten misschien dat de aanval, die de Sodomieten op zijn huis gedaan hadden, zijn verstand had verbijsterd, hem zulk een schrik had aangejaagd dat hij niet wist wat hij zei, of wel, zij dachten dat hij met hen schertste. Zij, die een vrolijk leven leidden, met alles schertsten en lachten, achtten dat dit ook een scherts, een grap was, en zo zijn zij in de verwoesting omgekomen. Zo zijn er nog velen, die heel luchthartig blijven als zij gewaarschuwd worden voor de ellende en het gevaar, waarin zij zich bevinden, zij denken dat hun leraren met hen schertsen, zulken zullen omkomen, en dan is hun bloed op hun hoofd.
 
-## Genesis 19:15 - 23 
+## Genesis 19:15-23 
 
 Hier is:
 
@@ -112,12 +113,12 @@ b. Daarom moet hij wèl acht geven op hetgeen hij doet. Hij moet niet naar Sodom
 II. Het bepalen van een toevluchtsoord voor hem. Eerst werd hem daartoe het gebergte aangewezen, maar: 
 1\. Hij verzocht om een stad tot toevluchtsoord, een vaan de vijf, die dicht bij elkaar gelegen waren, genaamd Bela, Hoofdstuk 14:2. Het was Lots zwakheid te denken, dat een door hemzelf gekozen stad veiliger zou zijn dan het door God aangewezen gebergte. En hij redeneerde tegen zichzelf toen hij pleitte: Gij hebt Uwe weldadigheid groot gemaakt, die Gij aan mij gedaan hebt, om mijne ziel te behouden bij het leven, maar ik zal niet kunnen behouden worden naar het gebergte heen. Immers, kon Hij, die hem uit Sodom weggerukt had, toen hij aarzelde en draalde, hem niet veilig naar het gebergte brengen, al zou hij ook beginnen moe te worden? Kon Hij, die hem van het grotere kwaad had gered, hem niet ook door het kleinere heen helpen? In zijn bede legt hij er sterk de nadruk op dat die stad klein is. Zij is klein, is zij niet klein? Daarom kon men hopen dat zij niet zo slecht was als de andere steden. Dat gaf een nieuwe naam aan die plaats, zij werd Zoar genoemd, dat is: een kleine. Voorbeden voor kleinen zijn waardig om in gedachtenis te worden gehouden.
 
-2\. God stond hem zijn verzoek toe, al was daar ook veel zwakheid in gelegen, vers 21 - 22. Zie welke gunst God bewees aan een ware heilige, al was hij ook een zwakke heilige.
+2\. God stond hem zijn verzoek toe, al was daar ook veel zwakheid in gelegen, vers 21-22. Zie welke gunst God bewees aan een ware heilige, al was hij ook een zwakke heilige.
 a. Om hem genoegen te doen werd Zoar gespaard. Hoewel zijn voorbede niet zoals die van Abraham voortkwam uit edelmoedige liefde, maar bloot uit eigenbelang, heeft God hem zijn verzoek toch toegestaan om te tonen hoe veel het dringend gebed van een rechtvaardige vermag.
 b. Het verderf over Sodom werd opgeschort totdat hij in veiligheid was. Ik zal niets kunnen doen totdat gij daarhenen ingekomen zijt. De tegenwoordigheid van een Godvruchtige op een plaats, draagt er toe bij om oordelen af te weren. Zie hoe God zorg draagt voor de bewaring van Zijn volk. De winden worden opgehouden, totdat Gods dienstknechten verzegeld zijn, Openbaring 7:3, Ezechiël 9:4. 
 Eindelijk. Er wordt nota van genomen, dat de zon was opgegaan toen Lot in Zoar aankwam, want als een Godvruchtige in een plaats komt dan brengt hij licht mede, of behoort dit te doen.
 
-## Genesis 19:24 - 25 
+## Genesis 19:24-25 
 
 Toen, als Lot veilig in Zoar was aangekomen, toen kwam deze regen, want de Godvruchtigen worden weggenomen voordat het kwaad komt. Toen, als de zon was opgegaan, schitterend en helder, een schone dag belovend, toen ontstond deze storm, om te tonen, dat er geen natuurlijke oorzaken voor waren. Betreffende deze verwoesting valt op te merken: 
 
@@ -145,7 +146,7 @@ e. Haar omzien wees op een neiging tot omkeren, tot teruggaan, en daarom gebruik
 
 2\. De straf van Lots huisvrouw wegens deze zonde. Zij werd op dezelfde plaats gedood. Haar lichaam viel echter niet ter aarde, maar bleef overeind staan, als een zuil of monument, niet onderhevig aan vermolming of verrotting zoals een menselijk lichaam, dat aan de lucht is blootgesteld, maar gemetamorphoseerd in een metaalachtige substantie, die de eeuwen zou verduren. Kom en zie de goedertierenheid en de strengheid van God, Romeinen 11:22, jegens Lot, die voorwaarts ging, goedertierenheid, jegens de vrouw van Lot, die omzag, strengheid. Hoewel zij na verwant was aan een rechtvaardig man, hoewel zij beter was dan haar naburen, en hoewel zij een toonbeeld was van onderscheidende genade in haar bevrijding uit Sodom, heeft God toch haar ongehoorzaamheid niet voorbijgezien, want grote voorrechten zullen ons niet beveiligen tegen de toorn van God, indien wij ons die voorrechten niet naarstig en getrouw ten nutte maken. Laat deze zoutpilaar de gedachte bij ons opwekken: Daar het zo gevaarlijk is om te zien, zo laat ons ons strekken naar hetgeen voor is, Filippenzen 3:13, 14.
 
-## Genesis 19:27 - 29 
+## Genesis 19:27-29 
 
 Onze gemeenschap met God bestaat in ons Godvruchtig letten op Hem en Zijn genadig zien op ons, wij hebben hier dus de gemeenschap, die er was tussen God en Abraham, nu in hetgeen er met Sodom geschied was zoals tevoren in de beraadslaging over hetgeen er mee geschieden moest, want de gemeenschap met God wordt onderhouden in de handelingen van Zijn voorzienigheid zowel als in Zijn inzettingen.
 
@@ -155,7 +156,7 @@ b. Een opmerken in eerbiedige vreze, hij zag naar Sodom toe, vers 28, niet zoals
 
 2\. Hier is Gods gunstig aanzien van Abraham vers 29. Evenals tevoren, toen Abraham bad voor Ismaël, God hem in Izaak heeft verhoord, zo heeft Hij hem nu, toen hij bad voor Sodom, verhoord in Lot. Hij gedacht aan Abraham en om zijnentwil, leidde Hij Lot uit uit het midden dezer omkering. Op het gebed van het geloof zal God voorzeker op Zijn eigen wijze en op Zijn eigen tijd een antwoord van vrede geven, hoewel het voor een wijle vergeten schijnt te zijn, zal toch vroeg of laat blijken dat God het indachtig is. Het gebed van de Godvruchtigen voor hun vrienden en bloedverwanten redt deze menigmaal uit tijdelijke oordelen, het was om Abrahams wil, dat Lot gered werd. Wellicht heeft dit woord lang daarna Mozes aangemoedigd om te bidden: "Heere, gedenk aan Abraham", Exodus 32:13. Zie ook Jesaja 63:11.
 
-## Genesis 19:30 - 38 
+## Genesis 19:30-38 
 
 Hier is:
 
