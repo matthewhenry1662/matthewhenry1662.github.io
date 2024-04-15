@@ -374,9 +374,7 @@ Eveneens verging het hem zo met de wegen die de Heere in Zijn voorzienigheid met
 
 ## Overdenkingen bij zijn verjaardagen
 
-Er gaat geen verjaardag van hem voorbij of ds. Henry schetst in het kort wat het jaar hem heeft gebracht. Het opschrijven van deze overdenkingen houdt hij tot aan het einde van zijn leven bij. Hierdoor leren we de man achter deze woorden nog beter kennen. Meestal schrijft hij in het Latijn. Als hij in 1691 met zijn dagboek begint, schrijft hij op 18 oktober bij de eerste verjaardagsoverdenking, dat hij die dag gepreekt heeft uit Hooglied 5:16: "Zulk een is mijn Liefste, ja zulk een is mijn Vriend!" En dan voegt hij erbij: "Hoe beklaaglijke is het als
-
-zo'n menslievende Zaligmaker voor iemand een reuk des doods ten dode is. Deze dag heb ik de leeftijd van 29 jaar bereikt en ik ben tot nu toe bewaard gebleven. Zo lang heb ik op God vertrouwd, maar weinig heb ik voor Hem geleefd. Zoveel jaren heb ik het goede genoten en zoveel jaren de zonde vermeerderd. Gedankt zij God door Jezus Christus, Wiens bloed alleen machtig is de zonden te verzoenen."
+Er gaat geen verjaardag van hem voorbij of ds. Henry schetst in het kort wat het jaar hem heeft gebracht. Het opschrijven van deze overdenkingen houdt hij tot aan het einde van zijn leven bij. Hierdoor leren we de man achter deze woorden nog beter kennen. Meestal schrijft hij in het Latijn. Als hij in 1691 met zijn dagboek begint, schrijft hij op 18 oktober bij de eerste verjaardagsoverdenking, dat hij die dag gepreekt heeft uit Hooglied 5:16: "Zulk een is mijn Liefste, ja zulk een is mijn Vriend!" En dan voegt hij erbij: "Hoe beklaaglijke is het als zo'n menslievende Zaligmaker voor iemand een reuk des doods ten dode is. Deze dag heb ik de leeftijd van 29 jaar bereikt en ik ben tot nu toe bewaard gebleven. Zo lang heb ik op God vertrouwd, maar weinig heb ik voor Hem geleefd. Zoveel jaren heb ik het goede genoten en zoveel jaren de zonde vermeerderd. Gedankt zij God door Jezus Christus, Wiens bloed alleen machtig is de zonden te verzoenen."
 
 In het volgende jaar op dezelfde dag zegt hij: "Heden ben ik 30 jaar geworden en ik overdenk mijn leven, dat veel weldaden en veel aanvechtingen heeft gekend. Hoeveel jaren heb ik niet geleefd, maar doorgebracht! Deze morgen heb ik de negentigste Psalm helemaal gelezen. Het twaalfde vers paste goed op mijn geboortedag: 'Leer ons alzo onze dagen tellen, dat wij een wijs hart bekomen.' Er is geen stilstaan noch vertraging in de tijd. Nauwelijks is een jaar ten einde of direct begint er weer een ander. De tijd staat niet stil. God bereide mij voor op mijn verhuizing!"
 
@@ -406,9 +404,7 @@ Zo leerde deze getrouwe dienaar de dagen en jaren van zijn reis door de woestijn
 
 Deze wijsheid was het deel geworden van ds. Henry. Dicht leefde hij iedere dag bij de dood, zodat zijn stervensuur hem niet onverwachts zou overvallen als een dief die komt in de nacht.
 
-Als een nieuwe jaarkring is aangebroken, beleeft ds. Henry zijn "heiligingsdag", zoals hij dat zelf noemt. Op elke nieuwjaarsdag vernieuwt hij zijn verbond met God, wat hij ook elke maand gewoon was te doen aan de tafel des Heeren. In een plechtige overgave van zichzelf en
-
-al de zijnen aan de Heere, wenst hij het nieuwe jaar te beginnen. Als in een spiegel aanschouwt hij dan als het ware de verdere gang van zijn leven en arbeid.
+Als een nieuwe jaarkring is aangebroken, beleeft ds. Henry zijn "heiligingsdag", zoals hij dat zelf noemt. Op elke nieuwjaarsdag vernieuwt hij zijn verbond met God, wat hij ook elke maand gewoon was te doen aan de tafel des Heeren. In een plechtige overgave van zichzelf en al de zijnen aan de Heere, wenst hij het nieuwe jaar te beginnen. Als in een spiegel aanschouwt hij dan als het ware de verdere gang van zijn leven en arbeid.
 
 Zo schrijft hij eens: "Mijn gezin is door Gods goedheid in goede welstand. Maar ik weet niet wat er in een dag, laat staan in een jaar kan veranderen. Ik heb gebeden of ik voorbereid mag zijn als beproevingen, bezoekingen en de dood dit jaar mochten komen. Ik begin dit jaar met een nieuwe overgave van mijzelf aan God in Christus, als mijn God, mijn Vader en mijn deel in eeuwigheid. Laat dit de as en het middelpunt zijn waaromheen alle jaarlijkse verandering draait. Amen! Ach Heere, moge het zo zijn!"
 
@@ -422,9 +418,7 @@ Wat het uitwendige betreft, beveel ik mij aan Gods voorzienigheid aan. Hij hande
 
 ## Een nieuwe verbondsinwilliging
 
-Het jaar daarop beschrijft Matthew Henry opnieuw de innerlijke roerselen van zijn ziel. Ziel, geest en lichaam geeft hij over in de handen van zijn Schepper en Herschepper. Intens beleeft hij zijn vreemdelingschap op aarde en hij bevestigt dat het nieuwe leven
-
-verankerd ligt in het verbond der genade. "Zeer vroeg in de morgen, toen het nog donker was, heb ik plechtig op mijn knieën het verbond vernieuwd. Het verbond der genade is een nieuw verbond, omdat het altijd nieuw is zo dikwijls als het vernieuwd wordt! Laat ik het toch steeds overdenken en het nimmer vergeten. Ootmoedig beken ik mijn afhankelijkheid van God als mijn Schepper."
+Het jaar daarop beschrijft Matthew Henry opnieuw de innerlijke roerselen van zijn ziel. Ziel, geest en lichaam geeft hij over in de handen van zijn Schepper en Herschepper. Intens beleeft hij zijn vreemdelingschap op aarde en hij bevestigt dat het nieuwe leven verankerd ligt in het verbond der genade. "Zeer vroeg in de morgen, toen het nog donker was, heb ik plechtig op mijn knieën het verbond vernieuwd. Het verbond der genade is een nieuw verbond, omdat het altijd nieuw is zo dikwijls als het vernieuwd wordt! Laat ik het toch steeds overdenken en het nimmer vergeten. Ootmoedig beken ik mijn afhankelijkheid van God als mijn Schepper."
 
 Nadat hij eerst belijdenis van zijn zonden heeft gedaan, spreekt hij zijn dankbaarheid uit over de ontvangen weldaden en vervolgt dan: "Weer moet ik klagen over de kracht der verdorvenheid die nog in mij over is gebleven. Beschaamd ben ik over mijn vele afwijkingen, ondanks dat ik zo dikwijls mijn verbond met God heb vernieuwd en tot Christus mijn toevlucht nam om vergeving en vrede te ontvangen. Nog eens verbind ik mijn ziel geheel en al voor altijd aan God. In Uw handen, o Heere, beveel ik mijn geest om steeds geleid, gereinigd, geheiligd en bekwaam gemaakt te worden tot Uw dienst.
 
@@ -432,7 +426,7 @@ Mijn lichaam bied ik U aan als een levende, heilige en U aangename offerande, he
 
 Indien God maar mijn Leidsman wil zijn op de weg die ik moet betreden gedurende de overige dagen van mijn vreemdelingschap in de wereld, waarin ik slechts een vreemdeling ben; indien Hij mij brood wil geven, om te eten, kleding om aan te trekken, een hart om Hem te beminnen, te dienen en voor Hem te leven en ik alzo ten laatste in het Huis van mijn hemelse Vader in vrede mag aankomen, dan, ja dan zal de Heere God mijn Heere en mijn God zijn voor altijd en eeuwig. Amen, Halleluja!"
 
-Bespiegeling over de gezegende hoop
+## Bespiegeling over de gezegende hoop
 
 Als ds. Henry een volgend jaar zijn verbond met de Heere vernieuwd heeft, voegt hij, onder de titel "Bespiegeling over de gezegende hoop", eraan toe: "Op deze nieuwjaarsdag heb ik in veel zwakheid en omringd door veel gebreken op mijn knieën mij opnieuw, met al wat ik heb en al wat ik ben en al wat ik kan doen, overgegeven aan God de Vader, Zoon en Heilige Geest, mijn Schepper, mijn Deel, mijn Bestierder en mijn Weldoener. Dat toch al mijn genegenheden door de Goddelijke genade bestuurd en al mijn zaken door de Goddelijke voorzienigheid mogen worden beheerst, opdat ik de Heere in deze wereld zal verheerlijken en Hij mij in het toekomende leven de heerlijkmaking mocht schenken. Ik bevestig en bekrachtig elke overgave van mijzelf aan God. Helaas moet ik klagen over alles wat daartegen strijdt in mijn hart. De genade der heiligmaking make mij bekwaam om mijn beloften na te komen! Opnieuw verbind ik mijzelf met een krachtige band aan de Heere en geef mij geheel aan Hem over, in het bijzonder voor dit jaar dat we zijn ingetreden, want we weten niet wat het ons brengen zal.
 
@@ -452,13 +446,9 @@ Daarom maak ik heden een zeker en vast verbond en ik beschrijf het aldus: Door d
 
 Opnieuw draagt hij, indien het zijn sterfjaar zou worden, zijn vrouw, kinderen en gemeente op aan God. "En dan hoop ik Christus in vrede en liefde te ontmoeten en door Gods genade zal mij dan de dood welkom zijn! Immers, dan zal ik geheel en alleen en voor altoos het eigendom des Heeren zijn. Amen! De Heere zegge er mede amen op!" Het leven van ds. Henry kenmerkte zich door voortdurende worstelingen aan de troon van Gods genade. Zowel overdag als in de stille, eenzame nachten zocht hij Gods aangezicht in het gebed.
 
-Zo schrijft hij op de eerste januari 1706: "Vannacht op mijn bed trachtte ik te vinden Hem Die mijn ziel liefheeft en nu begin ik dit nieuwe jaar ernstig biddende om Gods genade met een ootmoedige onderwerping van mijn ziel aan Zijn Geest. 0, dat ik toch op een of andere wijze
+Zo schrijft hij op de eerste januari 1706: "Vannacht op mijn bed trachtte ik te vinden Hem Die mijn ziel liefheeft en nu begin ik dit nieuwe jaar ernstig biddende om Gods genade met een ootmoedige onderwerping van mijn ziel aan Zijn Geest. 0, dat ik toch op een of andere wijze Hem op het hoogst mag verheerlijken.
 
-Hem op het hoogst mag verheerlijken.
-
-Ik weet dat mij niets kwaads zal overkomen, wanneer God mijn getrouwe Verbondsgod blijft. Indien de dood mocht komen, dan zal hij een einde maken aan mijn zonden en mij daar voor eeuwig van verlossen. Heere, laat Uw dienstknecht gaan in vrede naar Uw beloften!
-
-Vaarwel dan, o wereld!"
+Ik weet dat mij niets kwaads zal overkomen, wanneer God mijn getrouwe Verbondsgod blijft. Indien de dood mocht komen, dan zal hij een einde maken aan mijn zonden en mij daar voor eeuwig van verlossen. Heere, laat Uw dienstknecht gaan in vrede naar Uw beloften! Vaarwel dan, o wereld!"
 
 Zijn schoonvader, rechter Robert Warburton, heeft veel indruk op Matthew Henry gemaakt. Nooit is hij de spreuk vergeten, die deze man zo dikwijls aanhaalde: Christus is het Al der christenen. Met deze spreuk begon ds. Henry in zijn dagboek eens een nieuw jaar en hij voegde eraan toe: "Hij is mij Alles!"
 
@@ -470,9 +460,7 @@ Het feit dat hij bij zichzelf geen vruchten vindt die Gode welbehaaglijk zijn, m
 
 Ik hoop ernstig dat ik U dit jaar meer dan in alle voorgaande jaren mag dienen en dat ik daar bekwaam voor gemaakt mag worden. In alles wat ik voor U dit jaar, o mijn God, te doen heb, hoop ik op Uw genade. Wat voor droefheid en wederwaardigheden mij dit jaar nog overko-men zullen, ik vertrouw op Gods genade, dat deze wegen mij zullen heiligen en bekwaam zullen maken om ze als een christen te verdragen, opdat ik Hem de eer ervan toebrenge. Wat voor aanvechtingen ik ook zal hebben, moge de genade van God mij ertegen wapenen en mij ervoor bewaren dat ze mij zullen overweldigen."
 
-Zoals reeds vermeld had ds. Henry in de zomer van 1710 een brief ontvangen uit Londen van de gemeente van Hackney. De inhoud ervan had hem zeer verontrust. Het was niet de eerste
-
-keer dat zij de roep tot hem deden komen: "Kom over en help ons!"
+Zoals reeds vermeld had ds. Henry in de zomer van 1710 een brief ontvangen uit Londen van de gemeente van Hackney. De inhoud ervan had hem zeer verontrust. Het was niet de eerste keer dat zij de roep tot hem deden komen: "Kom over en help ons!"
 
 Zou de Heere nu in Zijn voorzienigheid een andere weg voor hem toebereiden? Hij is er bevreesd voor, want met innige banden voelde hij zich aan het volk van Chester verbonden. Moest hij hen nu loslaten, omdat de Heere hem naar Hackney riep? In zijn aantekeningen op zijn "heiligingsdag" in 1711 gewaagt hij ervan: "De grootste bekommering die ik dit jaar kan voorzien, is de uitnodiging om naar Hackney te komen. Ik geef het over aan de Heere, gelijk ik al zo dikwijls heb gedaan. Dat Hij het ten beste schikke! Hetzij Hij mij beveelt erheen te gaan, hetzij Hij mij daarvan weerhoudt, dat het alles maar mag zijn tot Zijn eer en dat ik dan eenswillend gemaakt mag worden. Heere, bereid mij toch voor op het toekomende leven, opdat ik in Uw heerlijkheid opgenomen mag worden; en wanneer U eenmaal komen zult, dat ik dan in U, o Heere Jezus, zonder vlek of rimpel bevonden moge worden."
 
@@ -488,9 +476,7 @@ Nooit heeft ds. Henry kunnen vermoeden dat de nieuwjaarsdag van het jaar 171A zi
 
 In zijn dagboek vermeldt hij opnieuw de ongemakken van nier- en blaasstenen die, naar later zal blijken, de oorzaak ervan zijn geweest dat zijn krachten steeds minder werden. Hij schrijft: "Met dankbaarheid voor de menigvuldige goedertierenheden des Heeren, die ik in het voorbijgevlogen jaar mocht ontvangen, wil ik in het bijzonder een goede gezondheid noemen. Ik heb niet meer dan vier ofvijfkeer in het hele jaar de pijn van de stenen gevoeld. Deze morgen heb ik opnieuw mijzelf aan God geheel en al overgegeven, met lichaam, ziel en geest. Vader, ik geef U mijn hart, leid mij dit jaar, tot Uw eer. Maak mij bekwaam om Uw wil te volbrengen! Indien dit een jaar van ziekte of smart zal zijn, een jaar van kruis of verdriet, van lijden of banden, ja, indien het mijn sterfjaar zal worden, ik zal met vreugde de wil van God ontvangen. Maar is het een jaar van gezondheid, vrede en vrijheid, zo wens ik, Heere, dat ik het op de juiste wijze mag besteden, zowel in het onderzoeken als in het prediken van Uw Woord en in een gehele afhankelijkheid van de Goddelijke genade, zonder hetgeen ik niets ben of kan doen."
 
-Dit was zijn laatste "heiligingsdag"! Zeer vroeg in de morgen, als zijn huisgenoten nog in diepe rust zijn, is ds. Henry op zijn knieën gegaan om het verbond tussen God en zijn ziel te bevestigen. En hij doet dit op zeer plechtige wijze in de stilte en eenzaamheid van zijn
-
-studeerkamer. Die dag preekt hij voor jonge mensen. De tekst luidt: "Mijn zoon, geef mij uw hart."
+Dit was zijn laatste "heiligingsdag"! Zeer vroeg in de morgen, als zijn huisgenoten nog in diepe rust zijn, is ds. Henry op zijn knieën gegaan om het verbond tussen God en zijn ziel te bevestigen. En hij doet dit op zeer plechtige wijze in de stilte en eenzaamheid van zijn studeerkamer. Die dag preekt hij voor jonge mensen. De tekst luidt: "Mijn zoon, geef mij uw hart."
 
 Thuisgekomen schrijft hij in zijn dagboek: "Goedertieren God, neem mijn hart aan zoals het is, en maak dat het zal zijn gelijk het moet wezen!" Het zijn de laatste aantekeningen op nieuwjaarsdag. Zijn "heiligingsdagen" op áárde zijn ten einde!
 
@@ -504,15 +490,13 @@ Ds. Henry schrijft aan Clark in een brief die gedateerd is 4 december 1700: "Ik 
 
 In 1704 werd het werk op meer uitgebreide schaal hervat en in 1706 werd het ontwerp aan het publiek bekendgemaakt in een advertentie, die voorafging aan de door ds. Henry gepubliceerde lijkpredikatie, die hij had uitgesproken bij de begrafenis van James Owen, predikant van Shrewsbury, op 11 april 1706. De advertentie luidde als volgt: "Nu is ter perse en binnenkort zal verschijnen een Verklaring van de vijf boeken van Mozes met prakticale opmerkingen, door dezelfde auteur."
 
-Harmonie van de Heilige Schriften
+## Harmonie van de Heilige Schriften
 
 In het voorbericht van deze allereerste Engelse uitgave schrijft Matthew Henry dat hij niet alleen aan God en zijn eigen geweten rekenschap wil geven van hetgeen hij geschreven heeft en nog van voornemen is te schrijven, maar dat hij eveneens de lezer dit bekend wil maken. Daartoe noemt hij een zestal "grote en heilige grondregels", waardoor hij gedreven werd en op grond waarvan hij te werk was gegaan om gedeelten van de Heilige Schrift op te helderen en tot nut te laten zijn. We noemen slechts de hoofdzaken:
 
 1. Godsdienst is onmisbaar en van het aller-noodzakelijkst belang. God onze Schepper te kennen, Hem lief te hebben en te vrezen, en in onze handel en wandel Zijn geboden te onderhouden, is zonder twijfel het doel van de schepping van de mens, en dit te betrachten is in alle opzichten de mens betamelijk.
 
-2. Goddelijke openbaring is noodzakelijk voor de ware godsdienst. Het geloof kan niet verkregen worden door het zien van Gods werken, maar moet gewrocht worden door het
-
-horen van het Woord Gods.
+2. Goddelijke openbaring is noodzakelijk voor de ware godsdienst. Het geloof kan niet verkregen worden door het zien van Gods werken, maar moet gewrocht worden door het horen van het Woord Gods.
 
 3. Goddelijke openbaring is thans nergens anders te zoeken of te verwachten, dan alleen in de Schriften van het Oude en het Nieuwe Testament.
 
@@ -528,7 +512,7 @@ Na het eindigen van de profeten schrijft Henry:
 
 "En laat mij nu de bijstand van mijn vrienden mogen vragen bij het oprichten van mijn Eben-Haëzer, met dankbare erkentenis dat mij de Heere tot hiertoe heeft geholpen. Ik wens God te danken, dat Hij mij in het leven gespaard heeft om het Oude Testament tot dusver te bewerken en mij genadig sommige tekenen van Zijn tegenwoordigheid te geven bij dit werk, ofschoon ik mezelf ertoe onwaardig gevoel. Ik zie welk een eer Hij mij daarin gegeven heeft en des te meer gevoel ik behoefte aan Christus en Zijn genade. Gedenk mijner, o mijn God, ten goede en bewaar mij naar de menigvuldigheid Uwer goedertierenheden. De Heere vergeve in dit werk hetgeen van mij is en neme genadig het Zijne aan."
 
-Op 9 september 1712 begint Matthew Henry met de verklaring van het Nieuwe Testament. Vijf maanden later, op 10 februari 1713 kan hij in zijn dagboek schrijven dat hij met het Evangelie van Mattheüs is klaar gekomen
+Op 9 september 1712 begint Matthew Henry met de verklaring van het Nieuwe Testament. Vijf maanden later, op 10 februari 1713 kan hij in zijn dagboek schrijven dat hij met het Evangelie van Mattheüs is klaar gekomen.
 
 ## Dagboekaantekeningen over de Bijbelverklaring
 
@@ -648,8 +632,6 @@ Toch begin ik eraan in de kracht Gods en naar ik hoop enkel en alleen met het oo
 
 18 juli De voorrede van het vierde deel beëindigd.
 
-183
-
 ### DEEL 5
 
 9 sept. Begonnen met Mattheüs, maar ging 's morgens naar Shalters Hall en bleef de gehele dag in de stad.
@@ -684,9 +666,7 @@ Op een blanco bladzijde aan het begin van het laatste deel (deel VI) schreef dr.
 
 Sommige delen van de andere zendbrieven waren door hem van zeer weinig aantekeningen voorzien en enkele andere overdenkingen uit zijn algemeen bekende en persoonlijke verklaringen waren stenografisch weergegeven."
 
-Nooit heeft ds. Henry kunnen vermoeden dat de belangstelling voor zijn werk na bijna driehonderd jaar nog zo groot zou zijn. Aan het werk, dat hij in zwakheid en met vrees en
-
-beven begonnen is, heeft de Heere kennelijk door de eeuwen heen Zijn zegen willen schenken. De Bijbelverklaring is ook heden ten dage nog een levend begrip en onlosmakelijk is daaraan de naam van Matthew Henry verbonden.
+Nooit heeft ds. Henry kunnen vermoeden dat de belangstelling voor zijn werk na bijna driehonderd jaar nog zo groot zou zijn. Aan het werk, dat hij in zwakheid en met vrees en beven begonnen is, heeft de Heere kennelijk door de eeuwen heen Zijn zegen willen schenken. De Bijbelverklaring is ook heden ten dage nog een levend begrip en onlosmakelijk is daaraan de naam van Matthew Henry verbonden.
 
 ## Het einde van de strijd
 
@@ -710,9 +690,7 @@ Men wil hem nog naar een ander adres brengen, maar hij is niet meer in staat om 
 
 Ds. Henry verzoekt zijn vrienden voor hem te bidden, "want", zo zegt hij, "ik kan niet meer voor mijzelf bidden." Als zij hem naar bed brengen, spreekt hij van de uitnemendheid van de geestelijke troost in een tijd dat men die van node heeft. Hij dankt God dat hij deze troost nu gevoelt.
 
-Tegen Illidge zegt hij: "Je bent gewend de woorden van stervende mensen te horen. Dit zijn de mijne: een leven in de dienst van God en Zijn gemeenschap besteed, is het meest
-
-troostvolle en het vermakelijkste leven dat iemand in deze wereld kan leiden."
+Tegen Illidge zegt hij: "Je bent gewend de woorden van stervende mensen te horen. Dit zijn de mijne: een leven in de dienst van God en Zijn gemeenschap besteed, is het meest troostvolle en het vermakelijkste leven dat iemand in deze wereld kan leiden."
 
 Die nacht slaapt hij heel weinig. 's Morgens tegen vijf uur wordt hij door een beroerte getroffen. Met open ogen ligt hij op bed zonder nog een woord te spreken. Drie uur later op die dinsdagmorgen, 22 juni, ontslaapt hij in de Heere. Dan mag zijn ziel overgaan in de handen van Christus, waar hij voor eeuwig bevrijd is van alle aardse kluisters en - om het met zijn eigen woorden te zeggen - waar hij nu geheel en alleen en voor altoos het eigendom des Heeren is.
 
@@ -752,30 +730,39 @@ Hij betuigde dat de Heere Jezus zeker wederkomen zal en Zijn goede en getrouwe d
 
 O, dat ik toch niet traag zou zijn, maar hem zou navolgen in geloof en heiligmaking en dat ik eenmaal met hem mag delen in die zalige rust.
 
-## LMatthew Henry's Bijbelverklaring in Nederland
+## Matthew Henry's Bijbelverklaring in Nederland
 
 ### De zestig delen van de Bijbelverklaring van Matthew Henry in tweeënveertig banden
 
-In 1741 verschijnt de eerste druk in de Nederlandse taal, uitgegeven door Reinier Boitet te Delft. De titel van deze uitgave luidt: Letterlijke en prakticale Verklaring over Moses Eerste Boek genaamt Genesis, beschreven door den zeer beroemden Godvruchtigen heer Matthew Henry, in zijn leven Bedienaar des Heiligen Evangeliums te Chester.
+In 1741 verschijnt de eerste druk in de Nederlandse taal, uitgegeven door Reinier Boitet te Delft. De titel van deze uitgave luidt: Letterlijke en prakticale Verklaring over Moses Eerste Boek genaamt Genesis, beschreven door den zeer beroemden Godvruchtigen heer Matthew Henry, in zijn leven Bedienaar des Heiligen Evangeliums te Chester.  
+
 Het werk is vertaald uit het Engels naar de uitgave van de vierde druk. In november 1740 schrijft Boitet in een voorwoord: 
-"Veel tot aanprijzing van dit werk te zeggen, is mijn oogmerk niet, dewijl het een genoegzaam bewijs van deszelfs waarde is, dat het reets viermaal in Zes Deelen in Folio in de Engelsche tale gedrukt, en altoos bij diegene die Waarheid en Godsvrucht beminnen, hoog geschat is. (...) Eenige jaren geleden nam ik op recommandatie van Godsgeleerde Mannen reets voor, om het Hooftwerk van den Godvruchtigen Henry, namentlijk deze zij ne Verklaring over den geheelen Bijbel, in de Nederduitsche tale mijnen Landsgenoten mede te delen, waarvan ik nu een begin make, met voornemen (zo God wil en ik leve) daarmede tot het einde toe voort te gaan (...)."
-Aan het werk gaat vooraf bij wijze van Inleiding: "Eene geleerde, in natuurlijke orde geschikte en aaneengeschakelde Historie van den Oirsprong des Bijbels; behelzende eene zeer krachtige verdediging van deszelfs goddelijkheid, en wederlegging van de voornaamste argu¬menten der vrijgeesten, door den vermaarden geleerden heer Thomas Stackhouse, predikant te Finchley." Daarom wordt deze verklaring ook wel de Bijbelverklaring van Henry en Stackhouse genoemd.
+"Veel tot aanprijzing van dit werk te zeggen, is mijn oogmerk niet, dewijl het een genoegzaam bewijs van deszelfs waarde is, dat het reets viermaal in Zes Deelen in Folio in de Engelsche tale gedrukt, en altoos bij diegene die Waarheid en Godsvrucht beminnen, hoog geschat is. (...) Eenige jaren geleden nam ik op recommandatie van Godsgeleerde Mannen reets voor, om het Hooftwerk van den Godvruchtigen Henry, namentlijk deze zij ne Verklaring over den geheelen Bijbel, in de Nederduitsche tale mijnen Landsgenoten mede te delen, waarvan ik nu een begin make, met voornemen (zo God wil en ik leve) daarmede tot het einde toe voort te gaan (...)."  
+
+Aan het werk gaat vooraf bij wijze van Inleiding: "Eene geleerde, in natuurlijke orde geschikte en aaneengeschakelde Historie van den Oirsprong des Bijbels; behelzende eene zeer krachtige verdediging van deszelfs goddelijkheid, en wederlegging van de voornaamste argu¬menten der vrijgeesten, door den vermaarden geleerden heer Thomas Stackhouse, predikant te Finchley." Daarom wordt deze verklaring ook wel de Bijbelverklaring van Henry en Stackhouse genoemd.  
+
 Boitet heeft zijn voornemen het werk van Matthew Henry tot het einde te brengen, niet kunnen verwezenlijken. In 1759 zet Van Essen te Del ft het werk van Boitet voort en bij het 15e deel in 1765 neemt Dirk onder de Linden te Amsterdam het over. In 1792, een halve eeuw na de verschijning van het eerste deel, verschijnt het 41ste of laatste deel van het Oude Testament, de profeten Zacharia en Maleachi. In 1769 ziet het eerste deel van het Nieuwe Testament het licht. Achttien jaar later, in 1787, deel 19, het boek Openbaring. De gehele editie bestaat dus uit 60 delen.
 
 Boitet begint in 1741 met de uitgave van het eerste deel van Genesis in vier afleveringen van een aantal katerns, "ieder nummer tot 22 stuivers ingenaait". Dit deel, dat 940 bladzijden telt, zal f 4,40 gekost hebben. Hoelang de Verklaring op deze wijze verscheen, is niet bekend. Doordat het werk in losse katerns verscheen, liet iedere afnemer zelf de boeken van een band voorzien. Het gebeurde dan dat de één meer delen in één band liet binden dan de ander. Zodoende is de kans dat er een complete editie in hetzelfde aantal banden bestaat, erg klein. Het aantal banden varieert tussen 42 en 55.
 Wat is de inhoud van deze uitgebreide Bij belverklaring?
+
 De complete verklaring van Matthew Henry is opgenomen, zoals deze in Engeland in zes delen verscheen, die gelijk is aan de negendelige uitgave van Kok (1910-1916). Daarnaast zijn in een ander lettertype op dezelfde pagina uitvoerige aanvullende verklaringen van anderen opgenomen. Deze zijn dikwijls uitgebreider dan die van Henry zelf. Daarnaast zijn vele pagina's gevuld met inleidingen en verhandelin¬gen. Bij de verklaring van het boek Genesis bijvoorbeeld schrijft Th. Stackhouse een inleiding van 148 bladzijden. Verder schrijft hij een vertoog van 12 bladzijden over de hof van Eden; 14 bladzijden over de schepping van de mens; 27 bladzijden over de tijdrekening van het leven van de mensen voor de zondvloed; 36 bladzijden over de zondvloed; 15 bladzijden over de toren van Babel; 33 bladzijden over de tijdrekening na de vloed, enzovoort. Stackhouse maakt hierbij gebruik van meer dan honderd schrijvers, zoals wijsgeren, geschied¬schrijvers, kerkvaders en reformatoren.
+
 In volgende delen worden op titelpagina's steeds weer andere "voor¬treffelijke" of "beroemde" Engelse en Duitse godgeleerden genoemd, J.H. Starcke, Chr. Starcke, R. Lowth, J.D. Michaëlis, J.W. Petersen en anderen. In latere delen worden ook Nederlandse theologen aangehaald, zoals H. Witsius en J. van den Honert. Tenslotte is in elk deel een tekstregister en een naam- en zaakregister te vinden.
 Wie de Nederlandse vertalers en bewerkers van dit in totaal zo'n 40.000 pagina's tellend werk zijn geweest, wordt nergens vermeld.
 
 ### De uitgave in negen delen
+
 In het jaar 1909 neemt uitgeverij Kok te Kampen het initiatief de Bij belverklaring van Henry opnieuw, in betere vertaling en aangena¬mer vorm, ter perse te leggen. De uitgever, J. H. Kok, begon onder leiding van prof. dr. H. Bavinck met de Verklaring van het Nieuwe Testament en durfde toen nog niet vast te stellen dat hij na de voltooiing ervan ook de Verklaring van het Oude Testament het licht zou doen zien. Het werd echter al gauw duidelijk dat de Verklaring, ook voor die tijd, grote waarde had en nog steeds talloze afnemers vond.
+
 In de voorrede van het eerste deel van het Nieuwe Testament, juni 1909, laat dr. Bavinck ons weten dat er niet alleen velen zijn die op het werk intekenen om het kostbare plan te doen slagen, maar ook dat de pers zich met de uitgave zeer ingenomen toont. Zelfs bladen die in schriftbeschouwing van Henry afwijken, hebben een hartelijk woord van waardering voor de herdruk van de Bijbelverklaring over.
+
 Dit alles gaf de uitgever moed om, toen de Verklaring van het Nieuwe Testament gereed was, ook de uitgave van het Oude Testament ter hand te nemen.
 "Deze geheel nieuwe vertaling van de Verklaring", aldus dr. Bavinck, "verdient zeker alle lof. Ze munt boven de vorige niet alleen daarin uit dat zij duidelijker en aangenamer is, maar doet daardoor ook de bijzonderheden van Henry's wijze van uitlegging nog beter tot hun recht komen. Bovendien is zij in veel opzichten beter en juister dan de oude vertaling."
 
 In 1910 verschijnt de uitgave van de Verklaring van het Nieuwe Testament in drie delen; drie jaar later, in 1912, volgt het eerste deel van het Oude Testament. In 1916 vindt de editie, die in totaal negen delen omvat, haar voltooiing.
 In de voorrede van het eerste deel merkt dr. Bavinck nog op: "Er zijn zonder twijfel verklaringen der Heilige Schrift, die in geleerdheid die van Henry overtreffen. Er zijn er ook, die meer werk maken van de taal- en geschiedkundige uitlegging en dieper indringen in de beteke¬nis van de woorden en het verband van de zinnen. Henry was geen geleerde van beroep en zijn verklaring mist alle vertoon van geleerd¬heid. Het was hem te doen om de Schrift te doen verstaan, niet alleen als boek dat ons over het verleden inlicht, maar ook als Woord Gods dat in het heden tot ons komt en dat nuttig is tot lering en wederlegging, tot onderwijzing en verbetering.
+
 Henry ging ervan uit dat af wat tevoren geschreven is, tot onze lering werd geschreven, opdat wij door lijdzaamheid en vertroosting der Schriften hope zouden hebben. Hij liet, in overeenstemming met de bedoeling der Schrift zelf, zijn verklaring daartoe strekken, dat de mens Gods volmaakt zij, tot alle goed werk volmaakt toegerust. Zo werd de Schrift door Henry opgevat en verklaard. De eigenlijke uitleg ontbreekt niet. Kort, eenvoudig en menigmaal met treffende juistheid wordt de zin aangegeven en het verband toegelicht. De verklaring is letterlijk maar toch vooral prakticaal. Nooit maakt hij jacht op vreemde en ongewone verklaringen, hij zoekt geen ijdele nieuwsgie¬righeid te bevredigen. Daarbij verspilt hij zijn kracht ook niet in het bestrijden en weerleggen van anderen. Hij behoorde zelf tot de richting der non-conformisten en puriteinen, hij was calvinist en presbyteriaans. En ofschoon afkerig van romanisme en socianisme, van alle deïsme en indifferentisme, was hij altijd een zacht, gematigd man. Hij breidde zijn liefde tot alle christenen uit. 
 Bij dit alles komt nog dat Henry's Verklaring op bijna elke bladzijde bewijzen aflegt van de geest en de kennis van de schrijver. Zij boeit, zonder met opzet onze aandacht te vragen. Zij bekoort door de rijkdom van beelden, door de frisheid en natuurlijkheid van stijl, door de levendigheid en op gewektheid van toon, door de duidelijkheid van voorstelling, door de overvloed van prakticale opmerkingen en toepasselijke, stichtelijke overdenkingen.
 
@@ -784,7 +771,9 @@ Henry's Verklaring is om strijd geprezen geworden door mannen als William Tong, 
 Want al is geen enkele uitlegging in gezag en waarde gelijk te stellen met de Schrift zelf, en al behoort dus ook de Bijbelverklaring van Henry steeds met oordeel des onderscheids geraadpleegd te worden, toch is zij in volledigheid, in duidelijkheid, in vertolking der Schrift als het Woord Gods en in haar toepassing op het leven, door geen der latere, populaire Bijbelverklaringen overtroffen geworden. De Schrift heeft zo velerlei bestemming. Zij is een Boek uit het verleden, maar ook voor het heden en de toekomst. Zij is een licht voor de enkele gelovige en een schat voor de ganse Kerk van Christus. Zij is een Woord voor alle tijden en een gids in alle toestanden van het leven. Zij dient tot vertroosting en vermaning, maar ook tot onderwijzing en lering. Zij komt tot gezin en maatschappij, tot kerk en tot school. Zij is in één woord de sprake Gods tot de mensheid.
 Van die veelzijdigheid der Schrift doet de Bijbelverklaring van Henry ons iets verstaan.
 Zij is letterlijk en prakticaal, uitleggend en toepassend, onderwijzend en vertroostend. Zij vertolkt de Schrift als de kracht Gods tot zaligheid een iegelijk die gelooft, als het Woord Gods dat eeuwiglijk blijft."
-De uitgave in twee delen
+
+### De uitgave in twee delen
+
 Tenslotte ziet in 1992 bij Uitgeverij De Banier te Utrecht Matthew Henry' s Bijbelverklaring van het Oude- en het Nienwe Testament nogmaals het licht in 2 forse delen. Onder leiding van dr. C. A. Tukker. 
 
 
