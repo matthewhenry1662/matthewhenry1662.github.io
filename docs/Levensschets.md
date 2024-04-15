@@ -1,22 +1,19 @@
 # Levensschets van Matthew Henry
 
 Facetten uit het leven en de totstandkoming van deze Bijbelverklaring.
-
 Overgenomen uit het waardevolle boek:
 
 EEN GETUIGE VAN HET LICHT - UIT HET LEVEN VAN MATTHEW HENRY
-
 1662-1714
-
-DOOR: J. BOUT
+Door: J. BOUT
 
 ## Kort overzicht
 
-Matthew Henry werd geboren 18 oktober 1662 op het Landgoed Broad Oak, waar thans nog nakomelingen wonen. Broad Oak ligt op de grens van Engeland en Wales. Zijn vader was Philip Henri, een Godzalig predikant in Whitechurch. In de Whitewell Chapel achter Broad Oak werd de kleine Matthew gedoopt door ds. Holland. In 1685 ging hij in Londen studeren. Hij wordt op zijn 24e jaar als predikant bevestigd in Chester. In zijn gemeente verklaarde hij als vaste gewoonte zondagsochtends een deel uit het Oude Testament, zondagsmiddags een deel uit het Nieuwe Testament. In 1712, als hij vijftig jaar oud is, neemt Matthew Henry een beroep aan naar Londen, nadat hij vele beroepen heeft afgeslagen.
+Matthew Henry werd geboren 18 oktober 1662 op het Landgoed Broad Oak, waar thans nog nakomelingen wonen. Broad Oak ligt op de grens van Engeland en Wales. Zijn vader was Philip Henry, een Godzalig predikant in Whitechurch. In de Whitewell Chapel achter Broad Oak werd de kleine Matthew gedoopt door ds. Holland. In 1685 ging hij in Londen studeren. Hij wordt op zijn 24e jaar als predikant bevestigd in Chester. In zijn gemeente verklaarde hij als vaste gewoonte zondagsochtends een deel uit het Oude Testament, zondagsmiddags een deel uit het Nieuwe Testament. In 1712, als hij vijftig jaar oud is, neemt Matthew Henry een beroep aan naar Londen, nadat hij vele beroepen heeft afgeslagen.
 
 Henry was Presbyteriaans predikant. Deze stonden de Verbondstheologie krachtig voor. Deze theologie werd voornamelijk ontwikkeld in Schotland, waar een Nationale Verbonds-inwilliging plaats vond. De preken leggen de nadruk op de persoonlijke Verbondsinwilliging, hetzij mondeling of schriftelijk.
 
-Zijn levenswerk was een Bijbelverklaring, die hij tot aan het boek Handelingen geheel zelf verzorgde. Na zijn overlijden op 22 juni 1714 maakten anderen, met behulp van nagelaten aantekeningen, het werk af. De verklaring wordt zeer populair, reeds in1840 waren er 200.000 delen van de verklaring in omloop.
+Zijn levenswerk was een Bijbelverklaring, die hij tot aan het boek Handelingen geheel zelf verzorgde. Na zijn overlijden op 22 juni 1714 maakten anderen, met behulp van nagelaten aantekeningen, het werk af. De verklaring wordt zeer populair, reeds in 1840 waren er 200.000 delen van de verklaring in omloop.
 
 ## Matthews jeugd
 
@@ -97,9 +94,7 @@ Zo bereidde de Heere Matthew reeds jong voor op zijn levenstaak: het verkondigen
 
 Het viel de jonge Matthew niet mee huis en haard te verlaten om te vertoeven in den vreemde. Gelukkig hoefde hij niet alleen te gaan. Zijn neef, Robert Bosier, vergezelde hem.
 
-Matthew was erg op hem gesteld en tussen hen bestond een hechte vriendschapsband. Robert was een paar jaar ouder. Hij had een tijdlang in Oxford gestudeerd, maar hij had de universiteitsstad graag verwisseld voor de theologische studie ten huize van Philip Henry,
-
-waar hij enige jaren doorbracht. Vooral de eerste weken in Islington was hij Matthew tot veel steun.
+Matthew was erg op hem gesteld en tussen hen bestond een hechte vriendschapsband. Robert was een paar jaar ouder. Hij had een tijdlang in Oxford gestudeerd, maar hij had de universiteitsstad graag verwisseld voor de theologische studie ten huize van Philip Henry, waar hij enige jaren doorbracht. Vooral de eerste weken in Islington was hij Matthew tot veel steun.
 
 's Heeren wegen waren echter anders dan ze beiden ooit konden denken. Niet lang nadat ze zich in Londen gevestigd hadden, stierf Robert na een zeer kort ziekbed. De verslagenheid was erg groot. Philip Henry voelde zich gedrongen het volgende over hem aan te tekenen: "Hij was een jonge man met een voorbeeldige Godsvrucht, van wie men verwachten kon dat hij te zijner tijd een voortreffelijk instrument voor God geweest zou zijn (...), maar wij weten dat alles wat ons overkomt, door Hem wordt bestuurd en dat Hij van Zijn daden aan niemand rekenschap behoeft te geven."
 
@@ -119,11 +114,9 @@ Nadat hij in deze aantekeningen de Heere dank zegt voor verstand, gezondheid, on
 
 Dan winnen zijn aantekeningen aan diepte, als hij vervolgt: "Ik zeg de Heere dank, dat ik bij mijn christelijke opvoeding de beginselen van de godsdienst als melk heb ingedronken en van jongs af getracht heb naar de rechte kennis van God. Ik ontving de gave van het gebed, die mij bekwaam maakt om God mijn gedachten bekend te maken, niet alleen voor mijzelf, maar ook om de mond van anderen te zijn. God heeft mij een hart gegeven om mij Hem toe te wijden tot Zijn dienst. En indien Hij mij ooit daartoe mocht roepen, wens ik me over te geven aan de dienst van de kerk door het uitoefenen van het leraarsambt. Zo menigmaal voelde ik de zoete invloeiing van Gods genade tijdens het beluisteren van de sabbathprediking en bij het deelnemen aan de sacramenten. Zodat ik niet alleen deel had aan de instellingen, die slechts de schors zijn, maar aan de gemeenschap met God, die de pit en de kern is.
 
-Door genade mag ik een zekere hoop hebben, dat God mij van eeuwigheid heeft uitverkoren, dat ik in de volheid des tij ds ben geroepen en dat God het goede, dat Hij in mij begonnen is, te Zijner tijd zal volmaken. Enige kennis heb ik mogen ervaren van de majesteit van God en de zoetigheid van Christus.
+Door genade mag ik een zekere hoop hebben, dat God mij van eeuwigheid heeft uitverkoren, dat ik in de volheid des tijds ben geroepen en dat God het goede, dat Hij in mij begonnen is, te Zijner tijd zal volmaken. Enige kennis heb ik mogen ervaren van de majesteit van God en de zoetigheid van Christus.
 
-Ik gevoelde het kwaad der zonde, de waarde van mijn ziel, de ijdelheid Ier wereld en het wezenlijk gewicht der onzienlijke dingen. Wanneer ik in twijfel was, ben ik geleid; in gevaar bewaard; in aanvechting gesterkt en wanneer ik schuldig was, heb ik vergeving mogen
-
-ontvangen. Als ik bad, heb ik verhoring gekregen. Wanneer ik in verdrukking was, heeft deze mij tot heiligmaking gediend. En dit alles heb ik mogen genieten door de Goddelijke Barmhartigheid.
+Ik gevoelde het kwaad der zonde, de waarde van mijn ziel, de ijdelheid der wereld en het wezenlijk gewicht der onzienlijke dingen. Wanneer ik in twijfel was, ben ik geleid; in gevaar bewaard; in aanvechting gesterkt en wanneer ik schuldig was, heb ik vergeving mogen ontvangen. Als ik bad, heb ik verhoring gekregen. Wanneer ik in verdrukking was, heeft deze mij tot heiligmaking gediend. En dit alles heb ik mogen genieten door de Goddelijke Barmhartigheid.
 
 Ik mag verwachten dat al deze goedertierenheden maar een voorsmaak zijn van betere dingen. Panden van het hemels koninkrijk! En dat ik tot in alle eeuwigheid zal rusten in Abrahams schoot. En als besluit dank ik God voor Jezus Christus, de Fontein en de Grond van alle genade. Amen. Halleluja!
 
@@ -151,11 +144,7 @@ Na een korte inleiding vervolgt hij:
 
 "Brieven met ijdele zaken te vullen is onnodig. Het zal eenmaal voor zot geklap aangerekend worden. Want het is zeker, als men van ieder ijdel woord rekenschap zal moeten geven, zo zullen schrijvers van ijdele brieven ook niet vrijuit gaan. Ik zal je deze weinige regels toezenden, die mogelijk tot geestelijk voedsel voor je ziel zullen strekken.
 
-Onlangs heb ik mijn gedachten laten gaan over belangrijke schriftuurlijke waarheden. Wanneer we deze voortdurend door het geloof betrachten, zou het een groot voordeel voor
-
-een christen zijn en een grote invloed hebben op zijn handel en wandel. Ik noem dan in de eerste plaats dat 'alle dingen naakt en geopend zijn voor de ogen Desgenen, met Welken wij te doen hebben' (Hebr. 4:13). Een vast geloof daarin, dat Gods alziend oog, waar wij ook zijn en wat we ook
-
-doen, alles ziet, zou een krachtige band zijn om onze ziel altijd tot God op te heffen en waakzaam te houden. Hoe durf ik noodzakelijke plichten nalaten of zulke zonden begaan, terwijl ik onder de ogen van die rechtvaardige en heilige God ben Die een afkeer van de zonden heeft en de ongerechtigheden niet kan verdragen? Het was een bijzondere naam die Hagar aan de put waar God haar verscheen, gaf: Lachai-Roï, de put van Hem Die leeft en mij ziet. 'Want', zei zij, 'Gij, God des aanziens' (Gen. 16:13).
+Onlangs heb ik mijn gedachten laten gaan over belangrijke schriftuurlijke waarheden. Wanneer we deze voortdurend door het geloof betrachten, zou het een groot voordeel voor een christen zijn en een grote invloed hebben op zijn handel en wandel. Ik noem dan in de eerste plaats dat 'alle dingen naakt en geopend zijn voor de ogen Desgenen, met Welken wij te doen hebben' (Hebr. 4:13). Een vast geloof daarin, dat Gods alziend oog, waar wij ook zijn en wat we ook doen, alles ziet, zou een krachtige band zijn om onze ziel altijd tot God op te heffen en waakzaam te houden. Hoe durf ik noodzakelijke plichten nalaten of zulke zonden begaan, terwijl ik onder de ogen van die rechtvaardige en heilige God ben Die een afkeer van de zonden heeft en de ongerechtigheden niet kan verdragen? Het was een bijzondere naam die Hagar aan de put waar God haar verscheen, gaf: Lachai-Roï, de put van Hem Die leeft en mij ziet. 'Want', zei zij, 'Gij, God des aanziens' (Gen. 16:13).
 
 Dit is de juiste wijze van handelen, wanneer we onze plicht willen betrachten, of aangevochten worden. Dan moeten we ons hart hemelwaarts richten en zeggen: Gij, o God, ziet mij. Daarom, laten we onze plicht naarstig volbrengen en de zonden zorgvuldig mijden, omdat Hij, Die alles ziet, in die grote dag, als al de verborgenheden des harten zullen geopenbaard worden, het aan engelen en mensen bekend zal maken.
 
@@ -191,11 +180,9 @@ De ouders van Matthews eerste vrouw, die eveneens met dit huwelijk ingenomen war
 
 Ds. Henry begon nu dagelijks aantekeningen te maken van alle belangrijke zaken die de Heere in Zijn voorzienigheid over hem beschikte. Dit was altijd al zijn gewoonte geweest, maar vanaf deze tijd deed hij het nauwkeuriger en heel getrouw, en niet meer zoals voorheen op losse blaadjes; tot het laatst van zijn leven heeft hij dit volgehouden.
 
-Hij begint met het maken van aantekeningen in een dagboek op zondag 9 november 1690: "Deze dag besloot ik mijn tijd niet ijdel door te brengen, maar de tijd uit te kopen, dewijl de dagen boos zijn
+Hij begint met het maken van aantekeningen in een dagboek op zondag 9 november 1690: "Deze dag besloot ik mijn tijd niet ijdel door te brengen, maar de tijd uit te kopen, dewijl de dagen boos zijn (Ef. 5:16). Elke avond wil ik overdenken hoe ik de dag heb doorgebracht. Dit zal mij doen ontdekken hoe ijdel wij de tijd doorbrengen en welke vorderingen wij in het leven der genade maken. Waarom zou ik daar niet een onderzoek naar doen?"
 
-(Ef. 5:16). Elke avond wil ik overdenken hoe ik de dag heb doorgebracht. Dit zal mij doen ontdekken hoe ijdel wij de tijd doorbrengen en welke vorderingen wij in het leven der genade maken. Waarom zou ik daar niet een onderzoek naar doen?"
-
-Vaderlijke liefde
+## Vaderlijke liefde
 
 Het eerste kind uit Matthew Henry's tweede huwelijk werd 12 april 1691 geboren. Eerst vreesde men nog voor het leven van de moeder. "Maar", zo schrijft ds. Henry in zijn dagboek, "de almachtige God verhoorde de ernstige gebeden die in het openbaar en in de binnenkamer werden opgezonden. Zij schonk het leven aan een dochter. Het is niet tevergeefs, als men tot God zijn toevlucht neemt." En dan voegt hij er nog bij: "Deze dag heb ik mijn gedachten over de geboorte van de mens laten gaan en ik vreesde dat er geen kracht genoeg geweest zou zijn om te baren."
 
@@ -203,9 +190,7 @@ Bij deze blijde gebeurtenis kwam zijn vader zijn kinderen bezoeken en Philip Hen
 
 Ondanks zijn huwelijksgeluk werd Matthews hart meer getrokken naar de dingen die Boven zijn, waar Christus is, want hij schrijft: "Ik heb nu mijn huis in een goede en rechte staat gebracht, zoals ik verplicht ben te doen. Nu denk ik aan mijn vertrek van hier. De dingen die mij hier zouden willen houden, zijn te licht bevonden ten opzichte van die zaken, die mij trekken om de wereld te verlaten. Door Gods genade kan ik zeggen, dat ik verlang om ontbonden te worden en met Christus te zijn, want dat is mij zeer verre het beste."
 
-Zijn dochtertje Elizabeth bleef nog geen anderhalf jaar in leven. Aanhoudende koortsen vanwege kinkhoest en het krijgen van tanden sloopten haar krachten. Steeds zwakker werd ze.
-
-Er ging geen dag voorbij, of ds. Henry tekende op, hoe het met haar ging. Drie dagen voor haar dood schrijft hij: "Het kind heeft een zeer slechte nacht gehad. Zij is zeer zwak en naar het schijnt gaat zij achteruit, maar ik troost mij met haar doop. Ik wens haar over te geven in de armen van 1 I em, Die haar mij heeft gegeven. Gods wil geschiede! Ik heb beloofd dat, indien God mij haar wil laten houden, ik mijn best zal doen om Tiaar tot Zijn eer op te voeden. ik zit nu bij een ellendig, ziek kind en ik overdenk de aard en het wezen van de erfzonde, waardoor de dood zelfs over de arme kinderen heerst."
+Zijn dochtertje Elizabeth bleef nog geen anderhalf jaar in leven. Aanhoudende koortsen vanwege kinkhoest en het krijgen van tanden sloopten haar krachten. Steeds zwakker werd ze. Er ging geen dag voorbij, of ds. Henry tekende op, hoe het met haar ging. Drie dagen voor haar dood schrijft hij: "Het kind heeft een zeer slechte nacht gehad. Zij is zeer zwak en naar het schijnt gaat zij achteruit, maar ik troost mij met haar doop. Ik wens haar over te geven in de armen van Hem, Die haar mij heeft gegeven. Gods wil geschiede! Ik heb beloofd dat, indien God mij haar wil laten houden, ik mijn best zal doen om haar tot Zijn eer op te voeden. Ik zit nu bij een ellendig, ziek kind en ik overdenk de aard en het wezen van de erfzonde, waardoor de dood zelfs over de arme kinderen heerst."
 
 Het kind stierf op 19 juli 1692. Voor ds. Henry is het de aanleiding voor de volgende aantekening: "Vanmorgen had ik het kind in mijn armen. Ik bereidde mij plechtig voor om het aan God op te dragen en mijn hart te buigen naar Zijn wil. Op datzelfde ogenblik scheen zij iets op te leven. Maar toen ik dit opschreef, werd ik haastig uit mijn studeerkamer geroepen. Ik moest zo snel mogelijk de dokter gaan halen en nauwelijks waren we thuis gekomen, of het kind stierf in de armen van haar moeder. Zij stierf zonder enige doodsstrijd, want haar krachten waren vergaan. Nu is mijn huis een huis van rouw!
 
@@ -215,7 +200,7 @@ Vandaag is het precies vijf jaar geleden dat ik voor de eerste keer trouwde. De 
 
 We zijn nu bezig met de voorbereiding voor een gepaste begrafenis van mijn arm kind.
 
-Veel vrienden komen ons bezoeken. Ik werd zeer verkwikt met de woorden uit 2 Koningen 4:26: 'Is het wel met u? Is het wel met uw man? Is het wel met uw kind? En zij zeide: Het is wel!' Hoewel ik van mijn lieveling moet scheiden, heb ik echter geen reden iets anders te zeggen dan dat het wel met eins is en wel met het kind; want alles is wel, wat God doet. Hij volbrengt hetgeen Hij over mij besloten heeft en het besluit van Zijn voorzienigheid is overeenkomstig Zijn besluit dit te doen tot mijn eeuwig heil."
+Veel vrienden komen ons bezoeken. Ik werd zeer verkwikt met de woorden uit 2 Koningen 4:26: 'Is het wel met u? Is het wel met uw man? Is het wel met uw kind? En zij zeide: Het is wel!' Hoewel ik van mijn lieveling moet scheiden, heb ik echter geen reden iets anders te zeggen dan dat het wel met ons is en wel met het kind; want alles is wel, wat God doet. Hij volbrengt hetgeen Hij over mij besloten heeft en het besluit van Zijn voorzienigheid is overeenkomstig Zijn besluit dit te doen tot mijn eeuwig heil."
 
 Na de begrafenis tekende hij op: "Ik heb vandaag een werk verricht dat ik nog nooit tevoren verricht heb, namelijk een kind begraven. Zeer zeker een droevig werk! Maar mijn beste vriend, ds. Lawrence, preekte 's middags zeer gepast en op een buitengewoon plechtige wijze uit Psalm 39:10: 'Ik ben verstomd, ik zal mijn mond niet opendoen, want Gij hebt het gedaan.' Mijn vrienden lieten door hun aanwezigheid hun hechte vriendschap blijken. Hier ligt nu een kostelijk kleed in de kleedkamer van het graf, om bij de opstanding weer aangetrokken te worden. De Heere zij dank voor deze hoop."
 
@@ -241,9 +226,7 @@ Daarna koos hij zijn tekst uit Romeinen 5:14: "Maar de dood heeft geheerst van A
 
 Na een duidelijke uiteenzetting over de heerschappij van de dood, speciaal met betrekking tot kinderen, die ofschoon zij niet schuldig staan aan dadelijke zonden, toch aan zijn macht zijn onderworpen, richtte hij zich vooral tot degenen die eveneens geroepen waren hun kleine kinderen aan de dood af te staan. "Berust in Gods wil en geef uw stervende kinderen over aan de Heere. Zelf kunnen zij het niet doen. U moet voor hen worstelen. Zeg dan: Vader, in Uw handen beveel ik de geest van mijn kind. Zij zijn de Zijne. Hij heeft recht op hen. Als Hij hen roept, moet u ze Hem teruggeven. Doe dit vrijwillig! Ik weet dat dit zwaar is, maar het moet!
 
-Laat hun dood u herinneren aan uw zonden. Hebt u nooit gezondigd, omdat u op een onbetamelijke wijze kinderen begeerde te ontvangen? Wellicht was u zeer ontevreden of dwong u ze af! Hebt u uw zinnen er te veel op gezet? Het is ook mogelijk dat u er te veel van hield of hun te veel hun zin gaf. Mijn trots, mijn liefde, mijn begeerte en mijn al! En nu? Leer het geduldig te dragen. Murmureer er niet over! 'Als ik van kinderen beroofd ben', zei eenmaal de oude patriarch Jakob, 'zo ben ik beroofd.' Wij mogen nog in het leven zijn. De Sunamietische vrouw zei: 'Het is wel.' Want alles wat God doet, is wel. Indien niet één musje ter aarde vallen kan zonder Gods wil, zo ook niet een kind. Vertroost uzelf in zulke dagen van droefheid met Gods verbond met u en uw zaad. Zoek uw troost in de Heere Jezus, Die dood is geweest en weer levend is geworden en Die leeft tot in alle eeuwigheid. De macht van Zijn
-
-heerschappij zal geen einde hebben. Bedenk uit wat voor wereld uw kinderen zijn weggenomen en waarheen zij zijn afgereisd. Zij zijn niet tevergeefs geboren, als zij mee mogen helpen om het nieuwe Jeruzalem te bevolken."
+Laat hun dood u herinneren aan uw zonden. Hebt u nooit gezondigd, omdat u op een onbetamelijke wijze kinderen begeerde te ontvangen? Wellicht was u zeer ontevreden of dwong u ze af! Hebt u uw zinnen er te veel op gezet? Het is ook mogelijk dat u er te veel van hield of hun te veel hun zin gaf. Mijn trots, mijn liefde, mijn begeerte en mijn al! En nu? Leer het geduldig te dragen. Murmureer er niet over! 'Als ik van kinderen beroofd ben', zei eenmaal de oude patriarch Jakob, 'zo ben ik beroofd.' Wij mogen nog in het leven zijn. De Sunamietische vrouw zei: 'Het is wel.' Want alles wat God doet, is wel. Indien niet één musje ter aarde vallen kan zonder Gods wil, zo ook niet een kind. Vertroost uzelf in zulke dagen van droefheid met Gods verbond met u en uw zaad. Zoek uw troost in de Heere Jezus, Die dood is geweest en weer levend is geworden en Die leeft tot in alle eeuwigheid. De macht van Zijn heerschappij zal geen einde hebben. Bedenk uit wat voor wereld uw kinderen zijn weggenomen en waarheen zij zijn afgereisd. Zij zijn niet tevergeefs geboren, als zij mee mogen helpen om het nieuwe Jeruzalem te bevolken."
 
 Dezelfde avond werd zijn kind in besloten kring begraven. Weinig mensen waren er aanwezig. Als het stil om hem heen is geworden, schrijft ds. Henry: "Ik heb mijn arm kind ter aarde besteld in de Trinity Church. Het is het vierde kind dat in zo'n korte tijd daar begraven is: twee van mijn zwager John Hardware en twee van mijzelf. Nochtans is de Heere genadig. De Heere bereide mij voor op deze kille en eenzame rustplaats!"
 
@@ -263,9 +246,7 @@ Vier data geven een blijvende herinnering. "Tegenspoed en voorspoed zijn elkaar 
 
 Nu zijn vader, die er altijd zoveel vreugde aan beleefde zijn kinderen te bezoeken en zijn kleinkinderen te dopen, niet meer leefde, verzocht hij zijn trouwe vriend ds. Lawrence van Nantwich zijn kind Ann te dopen.
 
-De daarbij behorende preek handelde over het wezen van het sacrament van de Heilige Doop en het Heilig Avondmaal. Ds. Lawrence toonde aan, hoe het volk van Israël in de woestijn de betekenis daarvan ook al had genoten met het gaan onder de wolkkolom en door de Rode
-
-Zee, etende het manna en drinkende het water uit de steenrots. En de Steenrots was Christus!
+De daarbij behorende preek handelde over het wezen van het sacrament van de Heilige Doop en het Heilig Avondmaal. Ds. Lawrence toonde aan, hoe het volk van Israël in de woestijn de betekenis daarvan ook al had genoten met het gaan onder de wolkkolom en door de Rode Zee, etende het manna en drinkende het water uit de steenrots. En de Steenrots was Christus!
 
 Voor de derde keer moet ds. Henry de droeve gang naar het kille graf maken om zijn kind te begraven. De kleine Ann is nog geen anderhalf jaar oud, als zij sterft aan de mazelen. "Het is een slaande roede, een bittere roede! Het is een roede in de handen van mijn Vader, Die weet wat het beste voor ons is. Wij geven de ziel van het kind weer over aan Hem Die het ons heeft geschonken. In droefheid brengen we onze dagen door, onze vrienden betonen hun deelneming. Ik ben dikwijls nabij de dood! 0 God, leer mij toch dagelijks te sterven. Toen men het kind in het graf legde, werd ik versterkt door het geloof in de opstanding, en met een vast vertrouwen op Hem Die de doden levend maakt, heb ik van haar afscheid genomen."
 
@@ -275,19 +256,17 @@ Matthews oudste zuster Sarah is er ook zeer verblijd mee. Zij kan niet nalaten i
 
 Door ervaring had zij geleerd voorzichtig te zijn. Haar vrees voor de toekomst is niet ongegrond gebleken. Deze Philip Henry nam later de naam van zijn moeder, Warburton, aan. Als Philip Warburton wilde hij door het leven gaan. Historici vermelden dat hij in 1747 Chester vertegenwoordigde in het parlement. "En het is te vrezen", voegt er één aan toe, "dat hij de God van zijn vaderen verzaakte."
 
-Het daaropvolgende jaar, in oktober 1701, wordt er weer een dochtertje geboren. Zij krijgt de naam van haar gestorven zusje, Elizabeth. Als ds. Henry de volgende morgen na de geboorte van dit kind naar gewoonte uit de Bijbel leest, is het treffend dat 1 Samuël 4 aan de beurt is om gelezen te worden. De geschiedenis van de huisvrouw van Pinehas, die met stervende lippen haar kind Ikabod noemde, grijpt hem aan en hij dankt de 1 leere, dat Hij zijn vrouw nog heeft gespaard. Het is niet verwonderlijk dat deze geschiedenis ds. Henry zo ontroert, want in korte tijd waren er in Chester veel vrouwen in het kraambed gestorven, meer dan ooit tevoren, voor zover men zich kon herinneren.
+Het daaropvolgende jaar, in oktober 1701, wordt er weer een dochtertje geboren. Zij krijgt de naam van haar gestorven zusje, Elizabeth. Als ds. Henry de volgende morgen na de geboorte van dit kind naar gewoonte uit de Bijbel leest, is het treffend dat 1 Samuël 4 aan de beurt is om gelezen te worden. De geschiedenis van de huisvrouw van Pinehas, die met stervende lippen haar kind Ikabod noemde, grijpt hem aan en hij dankt de Heere, dat Hij zijn vrouw nog heeft gespaard. Het is niet verwonderlijk dat deze geschiedenis ds. Henry zo ontroert, want in korte tijd waren er in Chester veel vrouwen in het kraambed gestorven, meer dan ooit tevoren, voor zover men zich kon herinneren.
 
 Ds. Henry nodigt dan ook zijn vrienden uit om met elkaar in zijn huis de Heere te danken, omdat zij, volgens zijn eigen woorden "in deze tijd overvloedige reden van dankzegging hebben." Hij schrijft: "Velen zijn aan onze zijde en aan onze rechterhand gevallen; uitgelezen barmhartigheden vereisen uitgelezen dankzeggingen en gehoorzaamheid."
 
 Enkele weken later, in de maand december, doopt hij zelf zijn kind. Bij deze plechtigheid kiest hij als tekst: "En Hij omving ze met Zijn armen, en de handen op hen gelegd hebbende, zegende Hij dezelve" (Mark. 10:16).
 
-Bijna twee jaar later is het, als het gezin opnieuw wordt uitgebreid. In augustus 1703 schenkt Henry's vrouw het leven aan een dochtertje, dat vernoemd wordt naar Matthews zuster Sarah. Bij de bediening van de Heilige Doop preekt hij over de woorden: "Ik zal Mijn Geest op uw zaad gieten en Mijn zegen op uw nakomelingen" (les. 44:3). Daarna schrijft hij, in biddend opzien tot God, in zijn dagboek: "Ik heb haar aan Christus opgedragen, om aan de Vader voorgesteld te worden; ik heb getracht God daarvan de eer te geven, maar ik ben zwak en onwaardig. God make mijn dochter een kind van Sarah!"
+Bijna twee jaar later is het, als het gezin opnieuw wordt uitgebreid. In augustus 1703 schenkt Henry's vrouw het leven aan een dochtertje, dat vernoemd wordt naar Matthews zuster Sarah. Bij de bediening van de Heilige Doop preekt hij over de woorden: "Ik zal Mijn Geest op uw zaad gieten en Mijn zegen op uw nakomelingen" (Jes. 44:3). Daarna schrijft hij, in biddend opzien tot God, in zijn dagboek: "Ik heb haar aan Christus opgedragen, om aan de Vader voorgesteld te worden; ik heb getracht God daarvan de eer te geven, maar ik ben zwak en onwaardig. God make mijn dochter een kind van Sarah!"
 
 Op 14 februari 1708 vermeldt ds. Henry de geboorte van zijn dochter Theodosia. Het is een gedenkwaardige dag! Het is de geboortedag van zijn oudste dochter Katharine en tevens de sterfdag van zijn eerste vrouw, nu negentien jaar geleden. "Toen", zo schrijft hij, "had ik reden God te danken voor Zijn genade èn oordeel, maar nu alleen voor Zijn genade. Ik was deze morgen bezig met de verklaring van Ezra 3, de geschiedenis van de grondlegging van de tweede tempel, waarbij vreugde en verdriet zich vermengden. Het kwam zo in mijn gedachten op dat vorige droefheden de dankbaarheid voor de zegeningen die ik thans ontvang, niet mogen doen vergeten."
 
-Nog eens spreken zijn aantekeningen van dankerkentenis, wanneer drie jaar later, in maart
-
-1711, zijn negende kind wordt geboren. Zij wordt eveneens vernoemd naar een jonggestorven kind uit het gezin, Mary. In zijn dagboek spreekt ds. Henry de ernstige begeerte uit, of de Heere hem met al de zijnen in genade wil aannemen. Dit kind heeft haar vader nooit bewust gekend, want als ds. Henry in 1714 sterft, is zij nog maar net drie jaar oud.
+Nog eens spreken zijn aantekeningen van dankerkentenis, wanneer drie jaar later, in maart 1711, zijn negende kind wordt geboren. Zij wordt eveneens vernoemd naar een jonggestorven kind uit het gezin, Mary. In zijn dagboek spreekt ds. Henry de ernstige begeerte uit, of de Heere hem met al de zijnen in genade wil aannemen. Dit kind heeft haar vader nooit bewust gekend, want als ds. Henry in 1714 sterft, is zij nog maar net drie jaar oud.
 
 De lijn der geslachten heeft zich voortgezet tot de huidige bewoners van Broad Oak via Theodosia, die op negentienjarige leeftijd huwt met Randle Keay, Esquire, te Whitchurch.
 
@@ -297,7 +276,7 @@ Opmerkelijk is het dat we nooit meer horen van Katharine, het kind uit het eerst
 
 In 1696 sierf Philip Henry. Hij werd begraven in de Parisch Church in Whitschuch. Later is de grafsteen overgebrcht naar Whitewell Church in de onmiddellijke omgeving van Broad Oak.
 
-Matthew Henry gaf aan het eind van de dag zijn indrukken weer: "Wat was het een aangrijpend en droevig werk! Ach, dat ik bij deze gebeurtenis een ernstige en bijblijvende indruk van de dood en de eeuwigheid mocht ontvangen. Onze vrienden gaven blijk van grote genegenheid; zij leden mee in onze smart en bewezen mijn gestorven vader de laatste eer. Hoe heeft God dit Broad Oak woest en eenzaam gemaakt als een wildernis en het arme volk als schapen zonder herder doen overblijven.),
+Matthew Henry gaf aan het eind van de dag zijn indrukken weer: "Wat was het een aangrijpend en droevig werk! Ach, dat ik bij deze gebeurtenis een ernstige en bijblijvende indruk van de dood en de eeuwigheid mocht ontvangen. Onze vrienden gaven blijk van grote genegenheid; zij leden mee in onze smart en bewezen mijn gestorven vader de laatste eer. Hoe heeft God dit Broad Oak woest en eenzaam gemaakt als een wildernis en het arme volk als schapen zonder herder doen overblijven.
 
 Enkele dagen later keerde ds. M. Henry naar Chester terug. Zijn werk in de gemeente riep hem. In zijn dagboek schreef hij: "Bij mijn thuiskomst trof ik mijn kinderen gezond en wel aan. Ik trok mij op mijn studeerkamer terug en bereidde mijn preek voor uit 2 Petrus 1:13 en 14: 'En ik acht het recht te zijn, zolang ik in dezen tabernakel ben, dat ik u opwek door vermaning; alzo ik weet, dat de aflegging mijns tabernakels haast zijn zal, gelijkerwijs ook onze Heere Jezus Christus mij heeft geopenbaard.'
 
