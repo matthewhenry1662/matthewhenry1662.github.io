@@ -14,7 +14,7 @@ Middels een "fork" van de "reposotory" kunt u wijzigingen voorstellen middels ee
 Alleen bestanden in 'docs' folder mogen worden aangepast. Aanpassingen op andere bestanden worden niet geaccepteerd. 
 De overige folders zijn benodigd voor het genereren van de webpagina's. 
 
-## Bijdragen aan de bijbelverklaring
+## Bijdragen aan bijbelverklaring
 
 In de map '_sources' zijn de .docx bronbestanden te vinden. Deze bestanden worden gebruikt voor de online versie. Het is niet toegestaan andere bronnen te gebruiken.  
 Daarnaast is de Statenvertaling de gebruikte vertaling voor de bijbelgedeelten. 
