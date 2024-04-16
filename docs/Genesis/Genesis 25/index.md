@@ -1,6 +1,6 @@
 1. En Abraham voer voort, en nam een vrouw, wier naam was Ketura. 
 2. En zij baarde hem Zimran en Joksan, en Medan en Midian, en Jisbak en Suah. 
-3  En Joksan gewon Seba en Dedan; en de zonen van Dedan waren de Assurieten, en Letusieten, en Leummieten. 
+3.  En Joksan gewon Seba en Dedan; en de zonen van Dedan waren de Assurieten, en Letusieten, en Leummieten. 
 4. En de zonen van Midian waren Efa en Efer, en Henoch en Abida, en Eldaa. Deze allen waren zonen van Ketura. 
 5. Doch Abraham gaf aan Izak al wat hij had. 
 6. Maar aan de zonen der bijwijven, die Abraham had, gaf Abraham geschenken; en zond hen weg van zijn zoon Izak, terwijl hij nog leefde, oostwaarts naar het land van het Oosten. 
