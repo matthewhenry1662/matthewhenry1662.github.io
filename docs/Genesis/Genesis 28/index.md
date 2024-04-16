@@ -24,12 +24,12 @@
 ## Inleiding 
 
 Wij hebben hier 
-I. Jakob, zijn ouders verlatende, om naar Paddan-Aram te gaan, de opdracht, hem door zijn vader gegeven, vers 1, 2, de zegen, waarmee zijn vader hem wegzond, vers 3, 4, zijn gehoorzaamheid aan de bevelen, die hij had ontvangen, vers 5-7, en de invloed, die dit had op Ezau, vers 6-9.
-II. Jacobs ontmoeting met God, en zijn gemeenschap met Hem op de weg. En daar: 
-1\. Zijn visioen van de ladder, vers 11, 12.
-2\. De genaderijke beloften, die God hem deed, vers 13-15.
-3\. De indruk, die dit op hem maakte, vers 16-19.
-4\. De gelofte, die hij deed aan God bij deze gelegenheid, vers 20-22.
+I. Jakob, zijn ouders verlatende, om naar Paddan-Aram te gaan, de opdracht, hem door zijn vader gegeven, vers 1, 2, de zegen, waarmee zijn vader hem wegzond, vers 3, 4, zijn gehoorzaamheid aan de bevelen, die hij had ontvangen, vers 5-7, en de invloed, die dit had op Ezau, vers 6-9.  
+II. Jacobs ontmoeting met God, en zijn gemeenschap met Hem op de weg. En daar:   
+1\. Zijn visioen van de ladder, vers 11, 12.  
+2\. De genaderijke beloften, die God hem deed, vers 13-15.  
+3\. De indruk, die dit op hem maakte, vers 16-19.  
+4\. De gelofte, die hij deed aan God bij deze gelegenheid, vers 20-22.  
 
 ## Genesis 28:1-5 
 
