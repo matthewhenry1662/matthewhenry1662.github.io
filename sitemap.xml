@@ -2341,11 +2341,6 @@
          <changefreq>daily</changefreq>
     </url>
     <url>
-         <loc>https://matthewhenry.online/Sefanja/</loc>
-         <lastmod>2024-04-17</lastmod>
-         <changefreq>daily</changefreq>
-    </url>
-    <url>
          <loc>https://matthewhenry.online/Spreuken/</loc>
          <lastmod>2024-04-17</lastmod>
          <changefreq>daily</changefreq>
@@ -2357,6 +2352,11 @@
     </url>
     <url>
          <loc>https://matthewhenry.online/Zacharia/</loc>
+         <lastmod>2024-04-17</lastmod>
+         <changefreq>daily</changefreq>
+    </url>
+    <url>
+         <loc>https://matthewhenry.online/Zefanja/</loc>
          <lastmod>2024-04-17</lastmod>
          <changefreq>daily</changefreq>
     </url>
