@@ -35,7 +35,7 @@
 35. En al zijn zonen, en al zijn dochteren maakten zich op, om hem te troosten; maar hij weigerde zich te laten troosten, en zeide: Want ik zal, rouw bedrijvende, tot mijn zoon in het graf nederdalen. Alzo beweende hem zijn vader. 
 36. En de Midianieten verkochten hem in Egypte, aan Potifar, een hoveling van Farao, overste der trawanten. 
 
-## Inleding 
+## Inleiding 
 
 In dit hoofdstuk begint de geschiedenis van Jozef die van nu voortaan, in ieder hoofdstuk (behalve een, tot aan het einde van het boek de hoofdpersoon is. Hij was Jacobs oudste zoon bij zijn beminde vrouw Rachel, geboren, zoals dit met veel uitnemende mannen het geval was, uit een moeder, die lang onvruchtbaar is geweest. Zijn geschiedenis is op zo merkwaardige wijze verdeeld in zijn vernedering en zijn verhoging, dat het niet anders kan, of wij moeten er iets van Christus in zien, die eerst vernederd en toen verhoogd werd, en in velerlei opzicht beantwoordde aan het type van Jozef. Dit toont ook het lot van de christenen, die door veel verdrukkingen moeten ingaan in het koninkrijk. In dit hoofdstuk hebben wij:
 

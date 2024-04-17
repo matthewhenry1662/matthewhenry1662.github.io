@@ -33,7 +33,7 @@
 33. Toen zeide Jakob: Zweer mij op dezen dag! en hij zwoer hem; en hij verkocht aan Jakob zijn eerstgeboorte. 
 34. En Jakob gaf aan Ezau brood, en het linzenkooksel; en hij at en dronk, en hij stond op en ging heen; alzo verachtte Ezau de eerstgeboorte. 
 
-## Inleding
+## Inleiding
 
 De gewijde geschiedschrijver neemt in dit hoofdstuk:
 
