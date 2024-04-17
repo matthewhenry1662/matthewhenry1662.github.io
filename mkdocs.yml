@@ -22,7 +22,7 @@ theme:
   icon:
     repo: fontawesome/brands/github
     edit: material/playlist-edit
-    view: material/eye
+    view: material/playlist-edit
     logo: material/book-open-variant
   favicon: assets/favicon.png
   name: material
@@ -47,7 +47,7 @@ theme:
     - content.code.annotatioin
     - content.code.copy
     - content.tooltips
-    - content.action.edit
+    - content.action.view
     # - content.footnote.tooltips
     # - content.code.select
   language: nl
