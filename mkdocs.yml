@@ -47,7 +47,7 @@ theme:
     - content.code.annotatioin
     - content.code.copy
     - content.tooltips
-    - content.action.view
+    - content.action.edit
     # - content.footnote.tooltips
     # - content.code.select
   language: nl
