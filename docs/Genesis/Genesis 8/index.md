@@ -26,16 +26,16 @@
 Aan het einde van het vorige hoofdstuk verlieten wij, de wereld in puin, en de kerk in engte en benauwdheid, maar in dit hoofdstuk hebben wij het herstel van de een en de verruiming van de andere. Nu verandert het toneel, een andere staat van zaken wordt ons voor ogen gesteld, wij zien nu de lichte zijde van de wolk, die daar zo donker en dreigend was, want, hoewel God lang twist, zal Hij toch niet eeuwig twisten, niet gedurig verbolgen zijn. Wij hebben hier:
 
 I. De aarde vernieuwd door de terugwijking van de wateren, en het voor de tweede maal tevoorschijn komen van het droge, en die beide langzaam en trapsgewijze.  
-1. Het toenemen van de wateren komt tot staan, vers 1,2   
-2. Zij beginnen Merk baar af te nemen, vers 3.  
-3. Na een zestiendaagse ebbe blijft de ark rusten, vers 4.  
-4. Na een ebbe van zestig dagen komen de toppen van de bergen boven het water uit, vers 5.  
-5. Na een ebbe van veertig dagen, twintig dagen nadat de bergen zichtbaar werden, begon Noach zijn verkenners uit te zenden, een raaf en een duif, teneinde berichten in te winnen, vers 6-12.  
-6. Twee maanden nadat de toppen van de bergen zichtbaar werden, waren de wateren verdwenen, en was de oppervlakte van de aarde droog, vers 13, hoewel niet genoegzaam droog om door de mens weer bewoond te kunnen worden, vóór er nog twee maanden voorbij waren gegaan, vers 14.  
-
-II. De mens wederom op aarde gevestigd. Waarin: 1. Noachs verlof om uit de ark te gaan, vers 15-19.  
-2. Zijn dankoffer, dat hij Gode bracht nadat hij de ark had verlaten, vers 20.  
-3. Gods aannemen van zijn offer, en de belofte, die Hij hem toen gaf, om de wereld nooit weer door water te verwoesten, vers 21, 22. En zo heeft ten laatste de barmhartigheid geroemd tegen het oordeel.  
+1\. Het toenemen van de wateren komt tot staan, vers 1,2   
+2\. Zij beginnen Merk baar af te nemen, vers 3.  
+3\. Na een zestiendaagse ebbe blijft de ark rusten, vers 4.  
+4\. Na een ebbe van zestig dagen komen de toppen van de bergen boven het water uit, vers 5.  
+5\. Na een ebbe van veertig dagen, twintig dagen nadat de bergen zichtbaar werden, begon Noach zijn verkenners uit te zenden, een raaf en een duif, teneinde berichten in te winnen, vers 6-12.  
+6\. Twee maanden nadat de toppen van de bergen zichtbaar werden, waren de wateren verdwenen, en was de oppervlakte van de aarde droog, vers 13, hoewel niet genoegzaam droog om door de mens weer bewoond te kunnen worden, vóór er nog twee maanden voorbij waren gegaan, vers 14.  
+II. De mens wederom op aarde gevestigd. Waarin: 
+1\. Noachs verlof om uit de ark te gaan, vers 15-19.  
+2\. Zijn dankoffer, dat hij Gode bracht nadat hij de ark had verlaten, vers 20.  
+3\. Gods aannemen van zijn offer, en de belofte, die Hij hem toen gaf, om de wereld nooit weer door water te verwoesten, vers 21, 22. En zo heeft ten laatste de barmhartigheid geroemd tegen het oordeel.  
 
 ## Genesis 8:1-3 
 

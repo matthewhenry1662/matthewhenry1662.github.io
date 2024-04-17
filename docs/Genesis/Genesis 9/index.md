@@ -38,18 +38,14 @@ a. De aarde zullen vervullen, vers 1, 7.
 b. Veilig zullen zijn tegen de aanvallen van de redeloze dieren, die in ontzag voor hen gehouden zullen worden, vers 2.  
 c. Dat het hun vergund is vlees te eten tot onderhoud van hun leven maar dat zij geen bloed moeten eten, vers 3, 4.  
 d. dat de wereld niet meer verdelgd zal worden door een watervloed, vers 8-11.   
-
-2\.God eist van hen zorg te dragen voor elkanders leven, en voor hun eigen leven, vers 5, 6.
-
-II. Het zegel van dat verbond, namelijk de regenboog, vers 12-17.
-
-III. Een verhaal van een bijzonder voorval betreffende Noach en zijn zonen dat de aanleiding was van enige profetieën, betrekking hebbende op latere tijden.
-1\.	Noachs zonde en schande, vers 20, 21.
-2\.	Chams onbeschaamdheid en goddeloosheid, vers 22.
-3\.	De vrome, kinderlijke bescheidenheid van Sem en Jafeth, vers 23.
-4\.	De vloek van Kanaän, en de zegen van Sem en Jafeth, vers 24-27.
-
-IV. De ouderdom en de dood van Noach vers 28, 29.
+2\.God eist van hen zorg te dragen voor elkanders leven, en voor hun eigen leven, vers 5, 6.  
+II. Het zegel van dat verbond, namelijk de regenboog, vers 12-17.  
+III. Een verhaal van een bijzonder voorval betreffende Noach en zijn zonen dat de aanleiding was van enige profetieën, betrekking hebbende op latere tijden.  
+1\.	Noachs zonde en schande, vers 20, 21.  
+2\.	Chams onbeschaamdheid en goddeloosheid, vers 22.  
+3\.	De vrome, kinderlijke bescheidenheid van Sem en Jafeth, vers 23.  
+4\.	De vloek van Kanaän, en de zegen van Sem en Jafeth, vers 24-27.  
+IV. De ouderdom en de dood van Noach vers 28, 29.  
 
 ## Genesis 9:1-7 
 
