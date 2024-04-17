@@ -5,7 +5,7 @@ Sommigen maken ene toespeling op de namen van dit en van het vorige boek, en mer
 Niet zodra hebben wij onze intrede in de wereld gedaan, of wij moeten reeds denken aan ons verscheiden, onzen uitgang uit de wereld. Als wij beginnen te leven, beginnen wij te sterven. De formering van Israël tot een volk was een nieuwe schepping. Gelijk in het begin de aarde van uit het water te voorschijn was gebracht, en toen versierd en vervuld werd, zo werd Israël eerst door de almachtige kracht Gods uit de Egyptische slavernij opgeheven, en toen verrijkt met Gods wet en tabernakel.
 
 Dit boek geeft ons:  
-I.	De vervulling der belofte, tevoren gedaan aan Abraham, Hoofdstuk 1 - 19. En dan,  
-II.	De instelling der rechten en wetten, die daarna door Israël zijn waargenomen, Hoofdstuk 20 - 40.  
+I.	De vervulling der belofte, tevoren gedaan aan Abraham, Hoofdstuk 1-19. En dan,  
+II.	De instelling der rechten en wetten, die daarna door Israël zijn waargenomen, Hoofdstuk 20-40.  
 
 Evenals Caesar, begint Mozes in dit boek met zijn eigen commentaren of gedenkschriften te boek te stellen; maar een meerder dan Caesar is hier. Van nu voortaan is de schrijver zelf de held van het verhaal, en geeft hij ons de geschiedenis van de dingen, waarvan hij zelf oog - en oorgetuige is geweest, et quorum pars magna fait, en waaraan hij zelf een zeer groot aandeel heeft gehad. Er zijn in dit boek meer typen van Christus dan misschien in enig ander boek van het Oude Testament, want Mozes heeft van Hem geschreven, Johannes 5:46. De wijze, waarop de mens verzoend wordt met God en in vcrbond en gemeenschap met Hem komt door een Middelaar, wordt hier op onderscheidene wijze voorgesteld, en het is ons van groot nut ter verklaring en opheldering van het Nieuwe Testament, nu wij dit bezitten ter verklaring van het Oude.
