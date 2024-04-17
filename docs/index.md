@@ -17,8 +17,8 @@ De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. 
 
 !!! note "Meehelpen?"
 
-    Het online zetten van deze bijbelverklaring kost veel tijd. Wil je meehelpen? Dat wordt gewaardeerd! De volledige code is beschikbaar op Github, waardoor u eenvoudig kunt meehelpen. 
+    Het online zetten van deze bijbelverklaring kost veel tijd. Wil je meehelpen? Dat wordt gewaardeerd! De volledige code is beschikbaar op Github, waardoor u eenvoudig kunt meehelpen. Klik rechtsbovenaan op de Github link voor meer informatie. 
 
 Voortgang
 <label for="file">Bijbelverklaring voortgang:</label>
-<progress id="file" value="2" max="100"> 2% </progress>
+<progress id="file" value="4" max="100"> 4% </progress>
