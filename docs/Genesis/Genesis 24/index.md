@@ -193,4 +193,3 @@ Merk hier op:
 1\. Welk een liefhebbende zoon hij was voor zijn moeder, het was ongeveer drie jaren nadat zij gestorven was, en toch was hij niet voor deze tijd getroost over haar dood. De wonde door deze beproeving aan zijn teder hart toegebracht bloedde zo lang, en was niet genezen voor hij in deze nieuwe levensomstandigheden kwam. Aldus zullen kruisen en zegeningen tegen elkaar opwegen, Prediker 7:14.
 
 2\. Welk een liefdevolle echtgenoot hij was voor zijn vrouw. Zij, die zich goed gedragen hebben in de een betrekking, zullen, naar men kan hopen, zich ook in een andere betrekking goed gedragen. Zij werd hem ter vrouw, en hij had haar lief. Daar had hij ook alle mogelijke reden toe, want "alzo zijn de mannen schuldig hun eigen vrouwen lief te hebben gelijk hun eigen lichamen." De plicht in deze betrekking wordt vervuld, en de lieflijkheid van die betrekking wordt gemaakt, als wederzijdse liefde heerst, want daar "gebiedt de Heere de zegen." 
-

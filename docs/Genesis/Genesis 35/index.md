@@ -38,7 +38,6 @@ II. Drie begrafenissen.
 1\. Die van Debora, vers 8.  
 2\. Die van Rachel, vers 16-20.  
 3\. Die van Izaak, vers 27-29.   
-
 III. Hier is Rubens bloedschande, vers 22, en een bericht omtrent Jacobs zonen, vers 23-26.
 
 ## Genesis 35:1-5 
@@ -107,4 +106,3 @@ Eindelijk. Jakob richtte een gedenkteken op boven haar graf, zodat het nog lang 
 4\. Het bezoek van Jakob aan zijn vader Izaak te Hebron. Wij kunnen veronderstellen dat hij hem tevoren reeds bezocht had sedert hij in het land terug was, want hij was zeer begerig naar het huis van zijn vader, maar nooit vóór thans had hij zijn gezin mee gebracht om er met hem of in zijn nabijheid gevestigd te zijn vers 27. Waarschijnlijk deed hij het nu na de dood van Rebekka, waardoor Izaak eenzaam was achtergebleven, daar hij niet gezind was om nogmaals te huwen.
 
 5\. De ouderdom en de dood van Izaak worden hier vermeld, hoewel het uit opgemaakte berekeningen blijkt, dat hij niet gestorven is dan verscheidene jaren nadat Jozef naar Egypte was verkocht, en ongeveer op dezelfde tijd van diens verhoging aldaar. Izaak, een zachtmoedig, rustig man, heeft van al de patriarchen het langst geleefd, want hij is honderd tachtig jaren oud geworden, Abraham slechts honderd vijf en zeventig jaren. Izaak leefde nog ongeveer veertig jaren nadat hij zijn testament had gemaakt, Hoofdstuk 27:2. Wij zullen geen uur vroeger, maar wèl veel beter sterven, door het voorbereiden van ons huis en ons hart. Er wordt bijzonder nota van genomen van de vriendelijke overeenstemming van Ezau en Jakob bij de plechtige begrafenis van hun vader, vers 29, om te tonen welk een wonderbaarlijke verandering God gewrocht had in Ezau’s gemoed, sedert hij zich voornam zijn broeder te doden, Hoofdstuk 27:41. God heeft velerlei middelen om slechte mensen te weerhouden om het kwaad te volbrengen, dat zij voornemens waren te doen, Hij kan of hun handen binden, of hun hart veranderen.
-

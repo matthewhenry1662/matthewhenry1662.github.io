@@ -40,7 +40,6 @@ I. In dit hoofdstuk zien wij Izaak in tegenspoed vanwege een honger in het land,
 1\. Hem verplicht van woonplaats te veranderen, vers 1. Maar:   
 2\. God bezoekt hem met leiding en vertroosting, 2-5.  
 3\. Dwaas verloochent hij zijn vrouw, en wordt er om bestraft door Abimelech, vs 6-11.  
-
 II. Izaak in voorspoed door de zegen Gods over hem, vers 12-14.  
 1\. En, de Filistijnen zijn afgunstig van hem, vers 14-17.  
 2\. Hij blijft naarstig in zijn zaken, vers 18-23.  

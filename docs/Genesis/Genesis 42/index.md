@@ -41,18 +41,18 @@
 
 In het vorige hoofdstuk hadden wij de vervulling van de door Jozef uitgelegde dromen, in dit en de volgende hoofdstukken hebben wij de vervulling van de dromen, die Jozef zelf gedroomd had, namelijk dat zijns vaders huisgezin zich voor hem zou neerbuigen. De geschiedenis van wat er voorviel tussen Jozef en zijn broeders wordt zeer uitvoerig en tot in bijzonderheden meegedeeld, niet alleen omdat het een belangwekkend verhaal is, waarvan waarschijnlijk onder Israëlieten en Egyptenaren beide veel gesproken werd, maar ook omdat het zeer leerrijk is, en er de aanleiding voor is geweest, dat Jakob en zijn gezin naar Egypte kwamen, waarvan later zoveel gebeurtenissen afhingen. Wij hebben in dit hoofdstuk:
 
-I. Het nederig verzoek van Jacobs zonen aan Jozef om koren te mogen kopen, vers 1 - 6.  
-II. De vrees, die Jozef hun aanjoeg, tot hun beproeving, vers 7 - 20.  
-III. Hoe zij nu tot overtuiging kwamen van hun zonde, lang tevoren aan Jozef gepleegd, vers 21 - 24.  
-IV. Hun terugkeer naar Kanaän met koren, en de grote benauwdheid, waarin hun goede vader kwam, toen zij hem bericht deden van hun reis, vers 35 - 38.  
+I. Het nederig verzoek van Jacobs zonen aan Jozef om koren te mogen kopen, vers 1-6.  
+II. De vrees, die Jozef hun aanjoeg, tot hun beproeving, vers 7-20.  
+III. Hoe zij nu tot overtuiging kwamen van hun zonde, lang tevoren aan Jozef gepleegd, vers 21-24.  
+IV. Hun terugkeer naar Kanaän met koren, en de grote benauwdheid, waarin hun goede vader kwam, toen zij hem bericht deden van hun reis, vers 35-38.  
 
-## Genesis 42:1 - 6 
+## Genesis 42:1-6 
 
 Hoewel Jacobs zonen allen gehuwd waren en zelf gezinnen hadden, schijnen zij toch tezamen een maatschappij te hebben uitgemaakt onder leiding en bestuur van hun vader Jakob. Wij hebben hier:
 
 I. De orders, die hij hun gaf om koren te gaan kopen in Egypte, vers 1, 2.
 Merk op: 
-1\. Dat de honger zwaar was in het land Kanaän. Het is opmerkelijk dat alle drie aartsvaders, voor wie Kanaän het land der belofte was, een hongersnood in dat land beleefd hebben. Het was niet slechts een beproeving van hun geloof, of zij op God konden vertrouwen, al zou Hij hen ook doden, of al zou Hij hen ook laten omkomen van honger, maar het was ook om hen te leren het betere vaderland te zoeken, namelijk het hemelse, Hebreeën 11:14 - 16. Wij hebben behoefte aan iets, dat ons losmaakt van deze wereld en ons doet verlangen naar een betere.
+1\. Dat de honger zwaar was in het land Kanaän. Het is opmerkelijk dat alle drie aartsvaders, voor wie Kanaän het land der belofte was, een hongersnood in dat land beleefd hebben. Het was niet slechts een beproeving van hun geloof, of zij op God konden vertrouwen, al zou Hij hen ook doden, of al zou Hij hen ook laten omkomen van honger, maar het was ook om hen te leren het betere vaderland te zoeken, namelijk het hemelse, Hebreeën 11:14-16. Wij hebben behoefte aan iets, dat ons losmaakt van deze wereld en ons doet verlangen naar een betere.
 
 2\. Maar toen er honger was in Kanaän, was er koren in Egypte. Zo heeft Gods voorzienigheid het beschikt, dat de een plaats hulp kan bieden aan de andere, want wij zijn allen broeders. De Egyptenaren, het zaad van de gevloekte Cham, hebben overvloed, terwijl Gods gezegend Israël gebrek heeft. Aldus kruist God, in het uitdelen van Zijn gewone gunsten dikwijls de handen. Let er echter op, dat de overvloed, die de Egyptenaren nu hadden onder God, aan Jozefs wijsheid en zorg te danken was. Indien zijn broeders hem niet naar Egypte verkocht hadden, maar hem naar zijn verdienste hadden geacht en gewaardeerd, wie weet, of hij dan niet voor Jacobs gezin hetzelfde gedaan zou kunnen hebben, wat hij nu voor Farao gedaan heeft, en dan zouden de Egyptenaren tot hen gekomen zijn om koren te kopen, maar zij, die wijze en Godvruchtige mensen van zich wegdrijven, weten niet wat zij doen.
 
@@ -64,7 +64,7 @@ Merk op:
 
 II. Hun gehoorzaamheid aan deze bevelen, vers 3. Zij togen af om koren te kopen. Zij zonden hun dienstknechten niet, maar gingen wijs zelf om hun geld te besteden. Niemand moet zich te groot of te goed achten om zich moeite te geven. Hoofden van gezinnen moeten met eigen ogen zien, en er zich voor wachten om al te veel aan dienstboden over te laten. Benjamin alleen ging niet mee, want hij was de lieveling van zijn vader. Zij kwamen naar Egypte, onder anderen, en daar zij een aanzienlijke hoeveelheid koren moesten kopen werden zij tot Jozef zelf gebracht, die waarschijnlijk wel verwacht heeft, dat zij zouden komen, en, naar de wetten der beleefdheid bogen zij zich voor hem, vers 6. Nu hebben hun ledige schoven zich voor zijn volle schoof gebogen. Vergelijk hiermede Jesaja 60:13, en Openbaring 3:9.
 
-## Genesis 42:7 - 20 
+## Genesis 42:7-20 
 
 Wij kunnen er ons wel over verwonderen dat Jozef gedurende de twintig jaren, die hij nu in Egypte was, en inzonderheid gedurende de laatste zeven jaren, die hij daar in macht en aanzien was, nooit bericht heeft gezonden aan zijn vader om hem met zijn omstandigheden bekend te maken, ja meer: het is vreemd dat hij, die zo dikwijls door geheel Egypteland toog, Hoofdstuk 41:45, 46, nooit een uitstapje gedaan heeft naar Kanaän, om zijn oude vader te bezoeken, toen hij aan de grens van Egypte was, en dit slechts een reis van wellicht niet meer dan drie of vier dagen voor hem geweest zou zijn in zijn wagen. Het is een gissing, die wel waarschijnlijkheid heeft, dat zijn gedrag en handelwijze in deze zaak onder de bijzondere leiding van de hemel was, opdat het voornemen van God ten opzichte van Jakob en zijn gezin tot stand zou worden gebracht. 
 Toen de broeders van Jozef kwamen, kende hij hen aan menig voldoend teken, maar zij kenden hem niet, daar zij weinig dachten hem hier te vinden, vers 8. Hij dacht aan de dromen, vers 9, maar zij hadden ze vergeten. Het bewaren van Gods orakelen in ons hart zal ons van groot nut zijn in ons gedrag. In zijn houding tegenover zijn broers had Jozef het oog op zijn dromen, die hij wist van God te zijn, en hij beoogde de vervulling er van en zijn broeders tot berouw te brengen over hun vorige zonden, en beide doeleinden werden bereikt.
@@ -74,13 +74,13 @@ a. het was om de vervulling van zijn dromen te doen uitkomen.
 b. Het was om hen tot bekering te brengen.
 c. Het was om een bericht uit hen te krijgen aangaande de toestand van zijn familie die hij zeer verlangend was te kennen. Zij zouden ontdekt hebben wie hij was, indien hij hen ondervraagd had als een vriend, en daarom ondervraagt hij hen als rechter. Zijn broer Benjamin niet bij hen ziende, begon hij hen misschien te verdenken, dat zij ook hem uit de weg hadden geruimd, en daarom geeft hij hun gelegenheid om hem van hun vader en broer te spreken. In Zijn voorzienigheid schijnt God soms hard te wezen voor hen, die Hij liefheeft, en spreekt hard met hen, voor wie Hij toch grote genade heeft weggelegd.
 
-2\. Hierop waren zij zeer nederig en onderdanig. Zij spraken met de grootst mogelijke eerbied tot hem: neen, mijn Heere, vers 10, een grote verandering sinds zij zeiden: daar komt deze meester - dromer aan. Zeer nederig en bescheiden ontkennen zij de beschuldiging: Wij zijn geen verspieders. Zij zeggen hem wat hun boodschap is, zij kwamen om eten te kopen, een zeer eerlijke zaak, waarvoor veel vreemdelingen toen naar Egypte gekomen zijn. Zij geven een bijzonder bericht omtrent henzelf en hun familie, vers 13. En dat was alles wat zij verlangden.
+2\. Hierop waren zij zeer nederig en onderdanig. Zij spraken met de grootst mogelijke eerbied tot hem: neen, mijn Heere, vers 10, een grote verandering sinds zij zeiden: daar komt deze meester-dromer aan. Zeer nederig en bescheiden ontkennen zij de beschuldiging: Wij zijn geen verspieders. Zij zeggen hem wat hun boodschap is, zij kwamen om eten te kopen, een zeer eerlijke zaak, waarvoor veel vreemdelingen toen naar Egypte gekomen zijn. Zij geven een bijzonder bericht omtrent henzelf en hun familie, vers 13. En dat was alles wat zij verlangden.
 
 3\. Hij sloot hen allen gedurende drie dagen op in de gevangenis, vers 17. Aldus handelt God met de zielen, voor wie Hij bijzondere eer en vertroosting heeft weggelegd. Eerst verootmoedigt en verschrikt Hij hen, en brengt hen onder een geest van dienstbaarheid, en dan verbindt Hij hun wonden door de geest van de aanneming.
 
 4\. Hij kwam ten slotte met hen overeen, dat een hunner als gijzelaar zou achterblijven, en de overigen naar huis zouden gaan om Benjamin te halen. Het was een zeer bemoedigend woord, dat hij tot hen sprak, vers 18, ik vrees God, alsof hij gezegd had: "Gij kunt u er van verzekerd houden dat ik u geen kwaad doen zal, dat durf ik niet, want ik weet dat, hoe hoog ik ook ben, er Eén is, die hoger is dan ik." Van hen, die God vrezen, kunnen wij een billijke behandeling verwachten. De vrees van God zal hen, die macht hebben, weerhouden hun macht te misbruiken tot verdrukking en tirannie. Zij, die voor niemand ontzag behoeven te hebben, moeten ontzag hebben voor hun eigen geweten. Zie Nehemia 5:15. Ik heb alzo niet gedaan om de vreze Gods.
 
-## Genesis 42:21 - 28 
+## Genesis 42:21-28 
 
 I. De berouwvolle overdenking van de broers van Jozef over het kwaad, dat zij hem gedaan hadden, vers 21. Zij bespraken de zaak met elkaar in het Hebreeuws, niet denkende dat Jozef, die zij voor een Egyptenaar hielden hen verstond, en nog veel minder dat hij de persoon was, van wie zij spraken.
 
@@ -100,7 +100,7 @@ IV. Het wegzenden van de anderen. Zij kwamen om koren, en koren kregen zij, en d
 
 2\. Maar in hun omstandigheden was het zeer verbazingwekkend. Zij wisten dat de Egyptenaren de Hebreeën verfoeiden, Hoofdstuk 43:32, daar zij dus niet zulk een vriendelijkheid van hen konden verwachten, dachten zij dat zij dit gedaan hadden om twist met hen te zoeken, en dat te meer, daar de man die Heere van het land was, hen had beschuldigd verspieders te zijn. Ook hun eigen geweten was ontwaakt, en hun zonden waren hun ordelijk voorgesteld, en dit brengt hen in verwarring. Als de mensen eens de moed laten zinken dan zal alles er toe bijdragen om hen nog meer ter neer te slaan. Als de leidingen van Gods voorzienigheid verrassend voor ons zijn, dan is het goed om te vragen wat het is, dat God gedaan heeft, en met ons doet, en op het maaksel van Zijn handen te zien.
 
-## Genesis 42:29 - 38 
+## Genesis 42:29-38 
 
 1\.Hier hebben wij het bericht, dat Jacobs zonen hun vader gaven, van de grote benauwdheid, die hun in Egypte was overkomen, hoe zij verdacht werden verspieders te zijn, gedreigd werden, en gedwongen om er Simeon gevangen achter te laten, totdat zij er met Benjamin weerkeerden. Wie zou hieraan gedacht hebben toen zij van huis gingen? Als wij op reis gaan behoren wij te denken aan de velerlei droeve ongevallen, die ons kunnen treffen eer wij weer thuis komen. Wij weten niet wat morgen geschieden zal, en daarom moeten wij altijd voorbereid wezen op het ergste.
 

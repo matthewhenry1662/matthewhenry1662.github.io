@@ -159,4 +159,3 @@ Of: b. Omdat God zijn geest weerhield om nog verder te vragen. Als God besloten 
 1\. Toen ging de Heere weg. De gezichten Gods kunnen in deze wereld niet altijd voortduren, daar het alleen door het geloof is, dat wij ons hier God moeten voorstellen. God ging niet weg voordat Abraham alles gezegd had, wat hij te zeggen had, want nooit is Hij het moede om naar het gebed van Zijn volk te horen Jesaja 59:1.
 
 2\. Abraham keerde weer naar zijn plaats. Hij was niet opgeblazen door de eer, die hem was aangedaan, en door het buitengewone onderhoud, dat God hem had toegestaan, was hij niet van het vervullen van zijn gewone dagelijkse plichten afgebracht. Hij keerde weer naar zijn plaats om waar te nemen wat er nu zou geschieden, en het bleek, dat zijn gebed was verhoord, al was het ook dat Sodom niet gespaard bleef, daar er geen tien rechtvaardigen in gevonden werden. Nooit kunnen wij te weinig verwachten van de mens, en nooit kunnen wij te veel verwachten van God.
-

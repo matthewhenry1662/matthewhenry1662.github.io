@@ -1,39 +1,39 @@
-1 En Jakob woonde in het land der vreemdelingschappen zijns vaders, in het land Kanaän. 
-2 Dit zijn Jacobs geschiedenissen. Jozef, zijnde een zoon van zeventien jaren, weidde de kudde met zijn broeders (en hij was een jongeling), met de zonen van Bilha, en de zonen van Zilpa, zijns vaders vrouwen; en Jozef bracht hun kwaad gerucht tot hun vader. 
-3 En Israel had Jozef lief, boven al zijn zonen; want hij was hem een zoon des ouderdoms; en hij maakte hem een veelvervigen rok. 
-4 Als nu zijn broeders zagen, dat hun vader hem boven al zijn broederen liefhad, haatten zij hem, en konden hem niet vredelijk toespreken. 
-5 Ook droomde Jozef een droom, dien hij aan zijn broederen vertelde; daarom haatten zij hem nog te meer. 
-6 En hij zeide tot hen: Hoort toch dezen droom, dien ik gedroomd heb. 
-7 En ziet, wij waren schoven bindende in het midden des velds; en ziet, mijn schoof stond op, en bleef ook staande; en ziet, uw schoven kwamen rondom, en bogen zich neder voor mijn schoof. 
-8 Toen zeiden zijn broeders tot hem: Zult gij dan ganselijk over ons regeren: zult gij dan ganselijk over ons heersen? Zo haatten zij hem nog te meer, om zijn dromen en om zijn woorden. 
-9 En hij droomde nog een anderen droom, en verhaalde dien aan zijn broederen; en hij zeide: Ziet, ik heb nog een droom gedroomd, en ziet, de zon, en de maan, en elf sterren bogen zich voor mij neder. 
-10 En als hij het aan zijn vader en aan zijn broederen verhaalde, bestrafte hem zijn vader, en zeide tot hem: Wat is dit voor een droom, dien gij gedroomd hebt; zullen wij dan ganselijk komen, ik, en uw moeder, en uw broeders, om ons voor u ter aarde te buigen? 
-11 Zijn broeders dan benijdden hem; doch zijn vader bewaarde deze zaak. 
-12 En zijn broeders gingen heen, om de kudde van hun vader te weiden bij Sichem. 
-13 Zo zeide Israel tot Jozef: Weiden uw broeders niet bij Sichem? Kom, dat ik u tot hen zende. En hij zeide tot hem: Zie, hier ben ik! 
-14 En hij zeide tot hem: Ga toch heen, zie naar de welstand van uw broederen, en naar de welstand van de kudde, en breng mij een woord wederom. Zo zond hij hem uit het dal Hebron, en hij kwam te Sichem. 
-15 En een man vond hem (want ziet, hij was dwalende in het veld); zo vraagde hem deze man, zeggende: Wat zoekt gij? 
-16 En hij zeide: Ik zoek mijn broederen; geef mij toch te kennen, waar zij weiden. 
-17 Zo zeide die man: Zij zijn van hier gereisd; want ik hoorde hen zeggen: Laat ons naar Dothan gaan. Jozef dan ging zijn broederen na, en vond hen te Dothan. 
-18 En zij zagen hem van verre; en eer hij tot hen naderde, sloegen zij tegen hem een listigen raad, om hem te doden. 
-19 En zij zeiden de een tot de ander: Ziet, daar komt die meesterdromer aan! 
-20 Nu komt dan, en laat ons hem doodslaan, en hem in een dezer kuilen werpen; en wij zullen zeggen: een boos dier heeft hem opgegeten; zo zullen wij zien, wat van zijn dromen worden zal. 
-21 Ruben hoorde dat, en verloste hem uit hun hand; en hij zeide: Laat ons hem niet aan het leven slaan. 
-22 Ook zeide Ruben tot hen: Vergiet geen bloed; werpt hem in dezen kuil die in de woestijn is, en legt de hand niet aan hem; opdat hij hem uit hun hand verloste, om hem tot zijn vader weder te brengen. 
-23 En het geschiedde, als Jozef tot zijn broederen kwam, zo togen zij Jozef zijn rok uit, de veelvervigen rok, dien hij aanhad. 
-24 En zij namen hem, en wierpen hem in de kuil; doch de kuil was ledig; er was geen water in. 
-25 Daarna zaten zij neder om brood te eten, en hieven hun ogen op, en zagen, en ziet, een reisgezelschap van Ismaëlieten kwam uit Gilead; en hun kemelen droegen specerijen en balsem, en mirre, reizende, om dat af te brengen naar Egypte. 
-26 Toen zeide Juda tot zijn broederen: Wat gewin zal het zijn, dat wij onzen broeder doodslaan, en zijn bloed verbergen? 
-27 Komt, en laat ons hem aan deze Ismaëlieten verkopen, en onze hand zij niet aan hem; want hij is onze broeder, ons vlees, en zijn broederen hoorden hem. 
-28 Als nu de Midianietische kooplieden voorbijtogen, zo trokken en hieven zij Jozef op uit de kuil, en verkochten Jozef aan deze Ismaëlieten voor twintig zilverlingen; die brachten Jozef naar Egypte. 
-29 Als nu Ruben tot de kuil wederkeerde, ziet, zo was Jozef niet in de kuil; toen scheurde hij zijn klederen. 
-30 En hij keerde weder tot zijn broederen, en zeide: De jongeling is er niet; en ik, waar zal ik heengaan? 
-31 Toen namen zij Jozefs rok, en zij slachtten een geitenbok, en zij doopten de rok in het bloed. 
-32 En zij zonden de veelvervigen rok, en deden hem tot hun vader brengen, en zeiden: Dezen hebben wij gevonden; beken toch, of deze uws zoons rok zij, of niet. 
-33 En hij bekende hem, en zeide: Het is mijns zoons rok! een boos dier heeft hem opgegeten! voorzeker is Jozef verscheurd! 
-34 Toen scheurde Jakob zijn klederen, en legde een zak om zijn lenden; en hij bedreef rouw over zijn zoon vele dagen. 
-35 En al zijn zonen, en al zijn dochteren maakten zich op, om hem te troosten; maar hij weigerde zich te laten troosten, en zeide: Want ik zal, rouw bedrijvende, tot mijn zoon in het graf nederdalen. Alzo beweende hem zijn vader. 
-36 En de Midianieten verkochten hem in Egypte, aan Potifar, een hoveling van Farao, overste der trawanten. 
+1. En Jakob woonde in het land der vreemdelingschappen zijns vaders, in het land Kanaän. 
+2. Dit zijn Jacobs geschiedenissen. Jozef, zijnde een zoon van zeventien jaren, weidde de kudde met zijn broeders (en hij was een jongeling), met de zonen van Bilha, en de zonen van Zilpa, zijns vaders vrouwen; en Jozef bracht hun kwaad gerucht tot hun vader. 
+3. En Israel had Jozef lief, boven al zijn zonen; want hij was hem een zoon des ouderdoms; en hij maakte hem een veelvervigen rok. 
+4. Als nu zijn broeders zagen, dat hun vader hem boven al zijn broederen liefhad, haatten zij hem, en konden hem niet vredelijk toespreken. 
+5. Ook droomde Jozef een droom, dien hij aan zijn broederen vertelde; daarom haatten zij hem nog te meer. 
+6. En hij zeide tot hen: Hoort toch dezen droom, dien ik gedroomd heb. 
+7. En ziet, wij waren schoven bindende in het midden des velds; en ziet, mijn schoof stond op, en bleef ook staande; en ziet, uw schoven kwamen rondom, en bogen zich neder voor mijn schoof. 
+8. Toen zeiden zijn broeders tot hem: Zult gij dan ganselijk over ons regeren: zult gij dan ganselijk over ons heersen? Zo haatten zij hem nog te meer, om zijn dromen en om zijn woorden. 
+9. En hij droomde nog een anderen droom, en verhaalde dien aan zijn broederen; en hij zeide: Ziet, ik heb nog een droom gedroomd, en ziet, de zon, en de maan, en elf sterren bogen zich voor mij neder. 
+10. En als hij het aan zijn vader en aan zijn broederen verhaalde, bestrafte hem zijn vader, en zeide tot hem: Wat is dit voor een droom, dien gij gedroomd hebt; zullen wij dan ganselijk komen, ik, en uw moeder, en uw broeders, om ons voor u ter aarde te buigen? 
+11. Zijn broeders dan benijdden hem; doch zijn vader bewaarde deze zaak. 
+12. En zijn broeders gingen heen, om de kudde van hun vader te weiden bij Sichem. 
+13. Zo zeide Israel tot Jozef: Weiden uw broeders niet bij Sichem? Kom, dat ik u tot hen zende. En hij zeide tot hem: Zie, hier ben ik! 
+14. En hij zeide tot hem: Ga toch heen, zie naar de welstand van uw broederen, en naar de welstand van de kudde, en breng mij een woord wederom. Zo zond hij hem uit het dal Hebron, en hij kwam te Sichem. 
+15. En een man vond hem (want ziet, hij was dwalende in het veld); zo vraagde hem deze man, zeggende: Wat zoekt gij? 
+16. En hij zeide: Ik zoek mijn broederen; geef mij toch te kennen, waar zij weiden. 
+17. Zo zeide die man: Zij zijn van hier gereisd; want ik hoorde hen zeggen: Laat ons naar Dothan gaan. Jozef dan ging zijn broederen na, en vond hen te Dothan. 
+18. En zij zagen hem van verre; en eer hij tot hen naderde, sloegen zij tegen hem een listigen raad, om hem te doden. 
+19. En zij zeiden de een tot de ander: Ziet, daar komt die meesterdromer aan! 
+20. Nu komt dan, en laat ons hem doodslaan, en hem in een dezer kuilen werpen; en wij zullen zeggen: een boos dier heeft hem opgegeten; zo zullen wij zien, wat van zijn dromen worden zal. 
+21. Ruben hoorde dat, en verloste hem uit hun hand; en hij zeide: Laat ons hem niet aan het leven slaan. 
+22. Ook zeide Ruben tot hen: Vergiet geen bloed; werpt hem in dezen kuil die in de woestijn is, en legt de hand niet aan hem; opdat hij hem uit hun hand verloste, om hem tot zijn vader weder te brengen. 
+23. En het geschiedde, als Jozef tot zijn broederen kwam, zo togen zij Jozef zijn rok uit, de veelvervigen rok, dien hij aanhad. 
+24. En zij namen hem, en wierpen hem in de kuil; doch de kuil was ledig; er was geen water in. 
+25. Daarna zaten zij neder om brood te eten, en hieven hun ogen op, en zagen, en ziet, een reisgezelschap van Ismaëlieten kwam uit Gilead; en hun kemelen droegen specerijen en balsem, en mirre, reizende, om dat af te brengen naar Egypte. 
+26. Toen zeide Juda tot zijn broederen: Wat gewin zal het zijn, dat wij onzen broeder doodslaan, en zijn bloed verbergen? 
+27. Komt, en laat ons hem aan deze Ismaëlieten verkopen, en onze hand zij niet aan hem; want hij is onze broeder, ons vlees, en zijn broederen hoorden hem. 
+28. Als nu de Midianietische kooplieden voorbijtogen, zo trokken en hieven zij Jozef op uit de kuil, en verkochten Jozef aan deze Ismaëlieten voor twintig zilverlingen; die brachten Jozef naar Egypte. 
+29. Als nu Ruben tot de kuil wederkeerde, ziet, zo was Jozef niet in de kuil; toen scheurde hij zijn klederen. 
+30. En hij keerde weder tot zijn broederen, en zeide: De jongeling is er niet; en ik, waar zal ik heengaan? 
+31. Toen namen zij Jozefs rok, en zij slachtten een geitenbok, en zij doopten de rok in het bloed. 
+32. En zij zonden de veelvervigen rok, en deden hem tot hun vader brengen, en zeiden: Dezen hebben wij gevonden; beken toch, of deze uws zoons rok zij, of niet. 
+33. En hij bekende hem, en zeide: Het is mijns zoons rok! een boos dier heeft hem opgegeten! voorzeker is Jozef verscheurd! 
+34. Toen scheurde Jakob zijn klederen, en legde een zak om zijn lenden; en hij bedreef rouw over zijn zoon vele dagen. 
+35. En al zijn zonen, en al zijn dochteren maakten zich op, om hem te troosten; maar hij weigerde zich te laten troosten, en zeide: Want ik zal, rouw bedrijvende, tot mijn zoon in het graf nederdalen. Alzo beweende hem zijn vader. 
+36. En de Midianieten verkochten hem in Egypte, aan Potifar, een hoveling van Farao, overste der trawanten. 
 
 ## Inleding 
 
@@ -43,7 +43,6 @@ I. De kwaadwilligheid van zijn broers jegens hem. Zij haatten hem:
 1\. Omdat hij zijn vader verwittigde van hun slechtheid, vers 1, 2.  
 2\. Omdat zijn vader hem liefhad, vers 3, 4.  
 3\. Omdat hij droomde van zijn heerschappij over hen, vers 5-11.  
-
 II. Het kwaad dat zijn broeders tegen hem beraamden en ten uitvoer brachten.   
 1\. Het vriendelijk bezoek dat hij hun bracht, gaf er hun de gelegenheid toe, vers 12-17   
 2\. Zij vormden het plan om hem te doden, maar kwamen hiervan terug, en besloten toen hem te laten verhongeren, vers 18-24.  
@@ -128,4 +127,3 @@ II. Om hun goede vader smart aan te doen, zij schenen zich hierdoor op hem te wi
 2\. Maar het was alles tevergeefs, Jakob weigerde zich te laten troosten, vers 35. Hij was een hardnekkige rouwbedrijvende, vast besloten om treurende naar het graf te gaan. Het was niet een plotselinge vervoering van David, toen hij uitriep: "Och, dat ik, ik, voor u gestorven ware, mijn zoon mijn zoon!" Maar, evenals Job, volhardde hij in zijn droefheid. Grote genegenheid voor enig schepsel bereidt slechts voor zoveel te grotere beproeving en smart, wanneer zij of van ons wordt weggenomen, of ons verbittert, ongeregelde liefde eindigt gewoonlijk in onmatige droefheid, zover de slinger van een klok zich naar de een kant beweegt, zal hij naar de andere kant teruggeworpen worden. Diegenen die besloten zijn om wegens elke aanleiding te treuren en rouw te bedrijven, gaan noch met het welzijn van hun ziel, noch met de eer van hun Godsdienst te rade. Wij moeten nooit zeggen: "Wij zullen rouw bedrijvende in het graf nederdalen", want wij weten niet welke blijde dagen Gods voorzienigheid nog voor ons heeft weggelegd, en wij zullen verstandig en plichtmatig handelen door ons te schikken naar de voorzienigheid Gods. Dikwijls brengen wij ons in verwarring en verlegenheid door denkbeeldige smart, wij stellen ons de dingen erger voor dan zij zijn en kwellen ons dan meer dan nodig is. Soms is er om ons te troosten niets meer nodig dan ons uit de droom te helpen, het is goed om het beste te hopen. 
 
 3\. Eindelijk. Daar de Ismaëlieten en Midianieten Jozef slechts gekocht hadden om hem met voordeel weer te verkopen, zien wij hem hier opnieuw verkocht (ongetwijfeld met winst genoeg voor de kooplieden) aan Potifar, vers 36. Jakob treurde over het verlies van zijn leven, had hij alles geweten, hij zou getreurd hebben - hoewel minder hartstochtelijk - over het verlies van zijn vrijheid. Zal Jacobs vrijgeboren zoon het beste kleed van zijn geslacht verruilen voor de livrei van een Egyptisch Heere met al de tekenen van de dienstbaarheid? Hoe spoedig is het land van Egypte tot een diensthuis geworden voor het zaad Jacobs! Het is verstandig van ouders om hun kinderen niet al te zacht en wekelijk op te voeden, want zij weten niet welke ontberingen en moeilijkheden zij in de weg van Gods voorzienigheid zullen ontmoeten. Weinig heeft Jakob gedacht, dat zijn geliefde zoon Jozef ooit aldus als slaaf gekocht en verkocht zou worden.
-

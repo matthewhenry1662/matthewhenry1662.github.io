@@ -33,12 +33,12 @@
 
 Dit hoofdstuk geeft ons een bericht van Juda en zijn gezin, en dit bericht is van zulk een aard, dat men zich verwonderd afvraagt, hoe uit al de zonen van Jakob onze Heere van deze Juda zou afstammen Hebreeën 7:14. Als wij ons naar deze geschiedenis zijn aard en karakter moesten voorstellen, dan zouden wij niet zeggen: Juda, gij zijt het, u zullen uw broeders loven, Hoofdstuk 49:8. Maar God wil tonen dat Zijn verkiezing is naar genade, en niet naar verdienste, en dat Christus in de wereld gekomen is om zondaren zalig te maken, zelfs de voornaamste van de zondaren en zich niet schaamt om, als zij zich bekeren, aan hen verwant te zijn. En ook, dat de waarde en de waardigheid van Jezus Christus persoonlijk en Hem eigen zijn, niet ontleend aan Zijn voorouders. Zichzelf vernederende om in de gelijkheid van het zondige vlees gezonden te worden, heeft het Hem behaagd om af te stammen van sommigen, die eerloos waren. Hoe weinig reden hadden de Joden, die hun naam aan deze Juda ontleenden, om te roemen, zoals zij geroemd hebben, dat zij niet uit hoererij waren geboren. Wij hebben in dit hoofdstuk:
 
-I. Juda’s huwelijk en geslacht, en de ontijdige dood van zijn twee oudste zonen, vers 1 - 11.  
-II. Juda’s bloedschande met zijn schoondochter Thamar, zonder dat hij er zich van bewust was, vers 12 - 23.  
-III. Zijn beschaming toen het ontdekt werd, vers 24 - 26.  
-IV. De geboorte van zijn tweelingzonen, door wie zijn geslacht gebouwd werd, vers 27 - 30.  
+I. Juda’s huwelijk en geslacht, en de ontijdige dood van zijn twee oudste zonen, vers 1-11.  
+II. Juda’s bloedschande met zijn schoondochter Thamar, zonder dat hij er zich van bewust was, vers 12-23.  
+III. Zijn beschaming toen het ontdekt werd, vers 24-26.  
+IV. De geboorte van zijn tweelingzonen, door wie zijn geslacht gebouwd werd, vers 27-30.  
 
-## Genesis 38:1 - 11 
+## Genesis 38:1-11 
 
 Hier is:
 
@@ -54,7 +54,7 @@ III. Zijn kinderen bij deze Kanaänietische, en hoe hij over hen beschikte. Hij 
 
 3\. Sela, de derde zoon, werd nu bestemd voor de weduwe, vers 11, maar met de bedoeling, dat hij niet zo jong zou huwen als zijn broeders, dat niet misschien deze ook sterve. Sommigen denken dat Juda nooit van zins is geweest om Sela met Thamar te doen huwen, maar haar onrechtvaardig verdacht heeft de dood van haar eerste twee echtgenoten veroorzaakt te hebben (terwijl het toch hun eigen goddeloosheid was, die hen had gedood) en haar toen naar haar vaders huis zond met de last om weduwe te blijven. Indien dit zo is, dan was dit een onverschoonbare daad van trouweloosheid waaraan hij zich schuldig maakte. Hoe dit zij, Thamar berustte voor het ogenblik, en wachtte de uitkomst af.
 
-## Genesis 38:12 - 23 
+## Genesis 38:12-23 
 
 Het is een zeer lelijke geschiedenis, die hier van Juda verhaald wordt, men zou zo’n dwaasheid in Israël niet vermoed hebben. Juda had zijn vrouw begraven, en weduwnaars moeten met de uiterste zorg en vastberadenheid op hun hoede zijn voor alle vleselijke lusten. Hij was onrechtvaardig jegens zijn schoondochter, hetzij door verzuim of met opzet, daar hij haar zijn overlevende zoon niet ten huwelijk gaf, en dit stelde haar bloot aan verzoeking.
 
@@ -76,7 +76,7 @@ III. Hij verloor zijn juwelen bij de koop. Volgens belofte zond hij de geitenbok
 1\. Dat zijn zonde openlijk bekend zou worden, en er dan van gesproken werd. Hoererij en alle onreinheid zijn te allen tijde beschouwd als iets schandelijks, en zij waren de smaad en schande van hen, die er schuldig aan werden bevonden. Niets zal hen doen blozen, die zich daar niet voor schamen. 
 Of: 2. Opdat men hem niet zal bespotten als een dwaas om aan een lichtekooi zijn zegelring en zijn snoer toe te vertrouwen. Hij toont geen berouw over zijn zonde, is er niet over bezorgd om er vergeving voor te verkrijgen, slechts wilde hij er de schande van voorkomen. Zo zijn er velen, wie er meer aan gelegen is om hun goede naam onder de mensen te behouden, dan zich de gunst van God en een goede consciëntie te verzekeren, "opdat wij niet misschien tot verachting worden," weegt bij hen zwaarder dan "opdat wij niet verdoemd worden." 
 
-## Genesis 38:24 - 30 
+## Genesis 38:24-30 
 
 Hier is:
 

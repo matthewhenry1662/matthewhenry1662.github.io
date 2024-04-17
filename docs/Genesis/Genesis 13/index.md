@@ -119,4 +119,3 @@ c. Hij stelt er hem in het bezit van, schoon het pas aan zijn nakomelingen door 
 1\. Hij verplaatste zijn tent. God gebood hem door het land te wandelen, dat is: denk er niet aan u er in te vestigen, maar verwacht steeds ongevestigd te blijven, en er door heen te wandelen naar een beter Kanaän. In onderworpenheid aan Gods wil hierin, verplaatste hij zijn tent, zich schikkende naar de toestand van een pelgrim te zijn.
 
 2\. Hij bouwde aldaar een altaar ten teken van zijn erkentelijkheid aan God voor het vriendelijke bezoek, dat Hij hem gebracht had. Als God ons tegenkomt met genaderijke beloften, dan verwacht Hij, dat wij tot Hem zullen gaan met ootmoedige dankzegging.
-

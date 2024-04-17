@@ -35,7 +35,7 @@
 
 ## Inleiding 
 
-Op hoge leeftijd verhuist Jakob naar Egypte, hiertoe genoodzaakt door een hongersnood, en door zijn zoon uitgenodigd zijnde om er te komen. 
+Op hoge leeftijd verhuist Jakob naar Egypte, hiertoe genoodzaakt door een hongersnood, en door zijn zoon uitgenodigd zijnde om er te komen.  
 I. God zendt hem daar heen, vers 1-4.  
 II. Geheel zijn familie gaat met hem vers 5-27.  
 III. Jozef heet er hem welkom, vers 28-31.  

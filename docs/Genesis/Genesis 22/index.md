@@ -146,4 +146,3 @@ Dit wordt hier vermeld:
 1\. Om te tonen, dat Abraham, hoewel hij zijn eigen familie hogelijk geëerd zag met bijzondere voorrechten, opgenomen in het verbond en gezegend met het onvervreemdbare erfdeel van de belofte, toch niet met minachting heeft neergezien op zijn bloedverwanten maar verheugd was over de toename en de voorspoed van hun gezinnen te horen.
 
 2\. Om de weg te bereiden voor het volgend verhaal van het huwelijk van Izak met Rebekka, een dochter uit dat gezin.
-

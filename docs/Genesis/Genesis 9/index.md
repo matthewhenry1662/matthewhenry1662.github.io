@@ -160,4 +160,3 @@ Anderen verdelen dit tussen Jafeth en Sem daar Sem niet direct gezegend was, ver
 Zie hier: 1. Hoe God het leven van Noach verlengd heeft, hij leefde 950 jaren, 20 meer dan Adam, en slechts 19 minder de Methusalah. Dit lange leven was nog een verdere beloning voor zijn uitnemende Godsvrucht, en een grote zegen voor de wereld, waarin hij ongetwijfeld was voortgegaan met een prediker van de gerechtigheid te zijn, met dit voorrecht, dat hij thans voor zijn eigen kinderen predikte.
 
 2\. Hoe God een perk stelde aan zijn leven hoewel hij lang leefde stierf hij toch, na waarschijnlijk velen van zijn afstammelingen voor hem te hebben zien sterven. Noach leefde om twee werelden te zien, maar een erfgenaam van de gerechtigheid zijnde, die door het geloof is, is hij toen hij stierf heengegaan om een wereld te zien, die beter is dan die beide.
-

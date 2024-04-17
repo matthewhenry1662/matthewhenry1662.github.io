@@ -36,10 +36,10 @@
 ## Inleiding
 
 De geschiedenis van Jozefs broers wordt hier voortgezet.  
-I. Hun droevig afscheid van hun vader Jakob in Kanaän, vers 1 - 14.  
+I. Hun droevig afscheid van hun vader Jakob in Kanaän, vers 1-14.  
 II. Hun aangename samenkomst met Jozef in Egypte, vers 15 34. Want in dit hoofdstuk wordt niets verhaald dan hetgeen lieflijk en aangenaam is.  
 
-## Genesis 43:1 - 10 
+## Genesis 43:1-10 
 
 1\. Jakob dringt er bij zijn zonen op aan, om naar Egypte te gaan en koren te kopen, vers 1, 2. De honger duurde voort, het koren dat zij gekocht hadden was op want het is spijs, die vergaat. Als een goed huisvader is Jakob nu in zorg om in geschikt voedsel voor zijn gezin te voorzien, en zal dan God niet voorzien voor Zijn kinderen, voor het huisgezin van het geloof? Jakob zegt hun heen te gaan om een weinig spijs te kopen, in deze tijd van schaarste moet een weinig genoeg zijn, want de natuur is met weinig tevreden.
 
@@ -47,7 +47,7 @@ II. Hun aangename samenkomst met Jozef in Egypte, vers 15 34. Want in dit hoofds
 a. Hij wijst op de volstrekte noodzakelijkheid, waarin zij zich bevinden, om Benjamin mee te brengen, want hij, die getuige was geweest van alles wat er in Egypte was voorgevallen, was meer bevoegd om hierover te oordelen, dan Jakob het kon wezen. Jozefs betuiging, vers 3, kan gebruikt worden om aan te tonen, op welke voorwaarden wij tot God mogen naderen: tenzij wij in de armen van ons geloof Christus medebrengen, kunnen wij het aangezicht van God niet zien in vrede.
 b. Hij verbindt zich om alle mogelijke zorg voor hem te dragen alles te doen wat hij kan voor zijn veiligheid, vers 8, 9. Juda’s geweten was ontwaakt en had hem verweten wat hij lang geleden tegen Jozef had gedaan, Hoofdstuk 42:21, en, als een blijk van de oprechtheid van zijn berouw, is hij bereid om, voorzoveel de mens dit kan, borg te zijn voor de veiligheid van Benjamin. Hij zal hem niet slechts geen kwaad doen, maar hij zal alles doen wat hij kan om hem te beschermen. Dit is, voorzover de zaak het toeliet, vergoeding of herstelling, niet wetende hoe hij Jozef zou terugbrengen, zal hij als enige vergoeding voor het onherstelbaar kwaad, dat hij hem gedaan heeft, zijn zorg verdubbelen voor Benjamins veiligheid en welvaren.
 
-## Genesis 43:11 - 14
+## Genesis 43:11-14
 
 Merk hier op:
 
@@ -63,7 +63,7 @@ III. Jacobs godsvrucht, die zich openbaart in zijn gebed, vers 14. God de Almach
 
 IV. Jacobs lijdzaamheid. Hij besluit het alles met dit woord: "Mij aangaande, als ik van kinderen beroofd ben, zo ben ik beroofd. Als ik hen aldus de een na de ander moet overgeven, dan moet ik berusten, en zeggen: De wil van de Heere geschiede." Wij zullen wijs handelen, als wij ons ook met onze zwaarste beproevingen verzoenen, want wij kunnen niets winnen door met onze Maker te twisten.
 
-## Genesis 43:15 - 25 
+## Genesis 43:15-25 
 
 Jacobs zonen, toestemming verkregen hebbende om Benjamin mede te nemen, hielden zich strikt aan de orders, die hun vader hun had gegeven en gingen voor de tweede maal af naar Egypte om koren te kopen. Als wij ooit te weten komen wat een honger van het woord betekent, zo laat ons niet denken dat het te veel is om even ver te reizen om geestelijk voedsel te verkrijgen, als zij gereisd hebben om voedsel voor het lichaam te bekomen. Nu hebben wij hier een bericht van hetgeen voorviel tussen hen en de man, die over het huis van Jozef was, die, naar sommige vermoeden, in het geheim was en hen kende als Jozefs broers, en meehielp om de zaak van Jozefs wil te regelen. Ik denk echter dat dit niet zo was, want toen Jozef zich daarna aan zijn broers bekendmaakte wilde hij dat daar niemand bij tegenwoordig was, Hoofdstuk 45:1.
 
@@ -78,7 +78,7 @@ Merk op: 1. Dat hij hiermede toont hoegenaamd geen verdenking van oneerlijkheid 
 
 4\. Hij vermaant hen op te zien tot God en Zijn voorzienigheid te erkennen in deze goede verrassing. Wij moeten ons verplicht erkennen aan God, als onze God en de God van onze vaderen, (een God in verbond met ons en hen) voor al onze voorspoed en al onze voordelen en de vriendelijkheid van onze vrienden, want ieder schepsel is datgene voor ons, en niets meer, wat God het voor ons doet zijn. De hofmeester bemoedigde hen niet slechts in woorden, maar in daden, want hij betoonde hun alle mogelijke goedheid en vriendelijkheid, totdat zijn meester kwam, vers 24.
 
-## Genesis 43:26 - 34 
+## Genesis 43:26-34 
 
 Hier is:
 I. De grote eerbied, die de broers van Jozef hem bewezen, toen zij hem het geschenk brachten, zij bogen zich voor hem ter aarde, vers 26, en opnieuw, toen zij hem bericht gaven omtrent de gezondheid van hun vader, neigden zij het hoofd en bogen zich, en spraken van uw knecht, onze vader, vers 28. Aldus werden de dromen van Jozef al meer en meer vervuld, en door de zonen, boog zich zelfs de vader voor hem, overeenkomstig de droom, Hoofdstuk 37:10. Jakob had hun waarschijnlijk gezegd dat zij, indien zij gelegenheid hadden om van hem tot de man, de Heere van het land, te spreken, hem zijn knecht zouden noemen.
@@ -96,5 +96,5 @@ a. Hij gaf orders om drie tafels toe te richten, een voor zijn broers, een tweed
 (3). Van de vroege verwijdering reeds tussen Joden en heidenen, zij konden niet met elkaar aan een tafel aanzitten.
 
 b. Hij deed zijn broers plaatsnemen naar hun onderscheiden rang van ouderdom, vers 33, alsof hij dat zeker waarnemen zou. Sommigen denken dat zij zelf aldus plaats hebben genomen naar hun gewoonte, maar dan zie ik niet waarom daar zo bijzonder nota van genomen is, inzonderheid omdat zij zich onder elkaar er over verwonderden.
-c. Hij gaf hun een overvloedig maal en zond hun schotels van zijn eigen tafel, vers 34. Dit was des te meer edelmoedig in hem en verplichtend voor hen vanwege de schaarsheid van de levensmiddelen. Ten dage van de honger is het genoeg gevoed te worden, maar zij werden aan een feestmaal onthaald. Zulk een goed middagmaal hadden zij misschien in geen maanden gehad. Er wordt gezegd: Zij dronken en waren vrolijk. Hun zorgen en vrees waren nu voorbij, en zij aten hun brood met blijdschap, denkende dat zij nu op goede voet stonden met de man, de Heere van het land. Indien God onze werken - ons geschenk - aanneemt dan hebben wij reden om vrolijk te zijn. Maar toch, als wij, zoals zij hier, aanzitten om met een heerser te eten, dan moeten wij scherp letten op degene, die voor ons aangezicht is, en ons door zijn smakelijke spijzen niet laten geruststellen, Spreuken 23:1 - 3. 
+c. Hij gaf hun een overvloedig maal en zond hun schotels van zijn eigen tafel, vers 34. Dit was des te meer edelmoedig in hem en verplichtend voor hen vanwege de schaarsheid van de levensmiddelen. Ten dage van de honger is het genoeg gevoed te worden, maar zij werden aan een feestmaal onthaald. Zulk een goed middagmaal hadden zij misschien in geen maanden gehad. Er wordt gezegd: Zij dronken en waren vrolijk. Hun zorgen en vrees waren nu voorbij, en zij aten hun brood met blijdschap, denkende dat zij nu op goede voet stonden met de man, de Heere van het land. Indien God onze werken - ons geschenk - aanneemt dan hebben wij reden om vrolijk te zijn. Maar toch, als wij, zoals zij hier, aanzitten om met een heerser te eten, dan moeten wij scherp letten op degene, die voor ons aangezicht is, en ons door zijn smakelijke spijzen niet laten geruststellen, Spreuken 23:1-3. 
 Jozef gaf hun te verstaan dat Benjamin zijn gunsteling was, want zijn gerecht was vijf maal groter dan de gerechten van hen allen, niet alsof hij wilde dat hij zoveel meer zou eten dan de anderen want dan zou hij meer eten dan goed voor hem was, (en het is geen daad van vriendschap, maar een kwaad veeleer en een onvriendelijkheid, om iemand tot te veel eten of drinken te dringen) maar aldus wilde hij zijn bijzondere genegenheid voor hem tonen, om te zien of zijn broers Benjamins meerdere gerechten zouden benijden, zoals zij voorheen hem benijd hadden om zijn fraaiere rok. En in zo’n geval moet het ons ten regel wezen om tevreden te zijn met wat wij hebben en ons niet te bedroeven om wat anderen hebben.

@@ -172,5 +172,3 @@ a. In de tijd van David en Salomo strekte zich hun rechtsgebied tot aan het uite
 b. Het was hun eigen schuld, dat zij niet eerder en langer in het bezit van al die landen waren. Zij verbeurden hun recht er op door hun zonden en door hun eigen laksheid en lafheid hebben zij zich buiten het bezit er van gehouden.
 
 3\. Het geschonken land wordt hier tot aan zijn uiterste grenzen aangeduid, omdat het een type moest wezen van de hemelse erfenis, waar plaats genoeg is, in het huis van onze Vader zijn vele woningen. De tegenwoordige bezitters worden genoemd, omdat hun aantal en sterkte en hun veeljarig bezit geen hinderpalen zullen zijn voor de vervulling van de belofte ter bestemder tijd, en ter grootmaking van Gods liefde voor Abram en zijn zaad, waardoor Hij aan die een natie de bezitting heeft gegeven van vele volken, zo kostelijk waren zij in Zijn ogen, en zo verheerlijkt, Jesaja 43:4.
-
- 

@@ -42,6 +42,8 @@
 42. Maar als de kudde spade hittig werd, zo stelde hij ze niet, zodat de spadelingen Laban, en de vroegelingen Jakob toekwamen. 
 43. En die man brak gans zeer uit in menigte, en hij had vele kudden, en dienstmaagden, en dienstknechten, en kemelen, en ezelen. 
 
+## Inleiding 
+
 In dit hoofdstuk hebben wij een bericht:
 
 I. Van de toename van Jacobs gezin. Nog acht kinderen zijn in dit hoofdstuk geregistreerd: Dan en Nafthali bij Bilha, Rachels dienstmaagd, vers 1, Gad en Aser bij Zilpa, Lea’s dienstmaagd, vers 9-13. Issaschar, Zebulon en Dina bij Lea, vers 14-21, en ten laatste Jozef bij Rachel, vers 22-24.  
@@ -120,4 +122,3 @@ Hier is Jacobs verstandig en eerlijk beleid om het verdrag met Laban voordeliger
 2\. Toen hij nu een kudde van gestreept en bruin vee had verkregen, heeft hij ze zo geplaatst, dat het aangezicht van de andere dieren tot dit vee gewend was, en wel met hetzelfde doel, maar zijn eigen bont vee belette hij om op Labans effenkleurig vee te zien, vers 40. Het schijnt dat sterke indrukken worden verkregen door het oog, het is dus nodig daar een verbond mee aan te gaan.
 
 3\. Toen hij zag dat die wijze van werken door de bijzondere zegen van God voorspoedig was, paste hij haar alleen toe op de sterkere soort van vee, waardoor hij voor zich de kostbaarste dieren verkreeg, terwijl dan de zwakkere soort, de spadelingen, voor Laban waren, vers 41, 42. Aldus brak Jakob geheel zeer uit in menigte, vers 43, en werd hij in korte tijd zeer rijk. Die voorspoed op zijn beleid zou het, wel is waar, niet kunnen rechtvaardigen, indien er bedrog bij ware gepleegd, of indien er een onrechtvaardigheid mee begaan was, hetgeen, daarvan zijn wij zeker, niet het geval was, daar hij onder Goddelijke leiding had gehandeld, Hoofdstuk 31:12, ook was er in de zaak zelf niets dan een eerlijk gebruik maken van een billijke overeenkomst, dat door Gods voorzienigheid zeer voorspoedig werd gemaakt, zowel om recht te doen aan Jakob wie Laban onrecht had gedaan en die door hem zeer hard behandeld werd, alsook ingevolge de bijzondere beloften, die hem gedaan waren ten teken van de Goddelijke gunst. Zij die, terwijl hun begin gering is, nederig en eerlijk zijn, tevreden en naarstig, zijn goed op weg om hun laatste zeer vermeerderd te zien, aan hem, die getrouw is in het kleine, zal meer toevertrouwd worden, aan hem, die getrouw is in hetgeen van een ander is, zal iets voor hemzelf toevertrouwd worden. Jakob, die een eerlijk en oprecht dienstknecht is geweest is een rijk meester geworden.
-

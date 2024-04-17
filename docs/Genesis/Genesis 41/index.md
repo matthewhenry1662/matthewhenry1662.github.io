@@ -1,4 +1,4 @@
-1.En het geschiedde ten einde van twee volle jaren, dat Farao droomde, en ziet, hij stond aan de rivier. 
+1. En het geschiedde ten einde van twee volle jaren, dat Farao droomde, en ziet, hij stond aan de rivier. 
 2. En ziet, uit de rivier kwamen op zeven koeien, schoon van aanzien, en vet van vlees, en zij weidden in het gras. 
 3. En ziet, zeven andere koeien kwamen na die op uit de rivier, lelijk van aanzien, en dun van vlees; en zij stonden bij de andere koeien aan de oever der rivier. 
 4. En die koeien, lelijk van aanzien, en dun van vlees, aten op die zeven koeien, schoon van aanzien en vet. Toen ontwaakte Farao. 
@@ -144,4 +144,3 @@ III. De uitoefening van Jozefs ambt, hij werd getrouw bevonden, zoals een rentme
 1\. Hij was naarstig in het opleggen terwijl de overvloed aanhield, vers 48, 49. Hij, die aldus vergadert, is een verstandig zoon.
 
 2\. Hij was verstandig en zorgzaam in het uitgeven toen de honger kwam, en hield de marktprijzen laag, door tegen redelijke prijs uit zijn voorraad te verkopen. In zijn benauwdheid riep het volk tot Farao, zoals de vrouw tot de koning van Israël: "Help, Heere koning," 2 Koningen 6:26, hij zond hen naar zijn schatmeester: Gaat tot Jozef. Zo wijst God in het Evangelie diegenen, die tot Hem komen om genade en vergeving, aan om tot de Heere Jezus te gaan, in wie alle volheid woont, en: doet wat Hij u zegt. Jozef heeft ongetwijfeld met wijsheid en rechtvaardigheid de prijs vastgesteld van het koren, dat hij verkocht, zodat Farao, voor wiens geld het was opgekocht, een redelijke winst kon hebben, en het land toch niet verdrukt werd, noch van de heersende schaarste misbruik werd gemaakt om onwettige winst te verkrijgen. Terwijl hij, "die koren inhoudt" als het duur is, in de hoop dat het nog duurder zal worden, hoewel het volk uit gebrek er aan omkomt - , er om gevloekt wordt, (en dat is geen vloek zonder oorzaak) "zal zegening zijn over het hoofd van de verkoper, die het aldus verkoopt," Spreuken 11:26. Laat de prijs bepaald worden door die gulden regel der rechtvaardigheid: te doen, zoals wij wensen, dat ons gedaan zal worden.
-
