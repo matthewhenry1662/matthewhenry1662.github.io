@@ -20,4 +20,4 @@ De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. 
     Het online zetten van deze bijbelverklaring kost veel tijd. Wil je meehelpen? Dat wordt gewaardeerd! De volledige code is beschikbaar op GitHub, waardoor u eenvoudig kunt meehelpen. Klik op de GitHub link voor meer informatie. 
 
 <label for="file">Bijbelverklaring voortgang:</label>
-<progress id="file" value="4" max="100"> 4% </progress>
+<progress value="5" max="100" style="width:100%; height:25px;"></progress>
