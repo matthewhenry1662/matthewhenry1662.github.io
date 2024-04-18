@@ -37,7 +37,9 @@ In dit hoofdstuk hebben wij,
 I. Een vervolg van de beschrijving van die vreselijke verwoesting, die in het land van Juda zou aangericht worden door sprinkhanen en rupsen, vers 1-11.  
 II. Een ernstige oproeping van het volk onder dit pijnlijke oordeel, om berouw te hebben en zich te bekeren, om te vasten en te bidden en God aan te lopen om genade met aanwijzingen om dat op de rechte wijze te doen, vers 12-17.  
 III. Een belofte, dat, na hun bekering, God het oordeel zou wegnemen, de schade, daardoor aangericht, herstellen, en hun opnieuw overvloed van al wat goed is, geven, vers 18-27.  
-IV. Een voorspelling van de oprichting van het koninkrijk van de Messias in deze wereld, door de uitstorting van de Heilige Geest in het laatste van de dagen, vers 28-32. zo verschrikkelijk als het begin van dit hoofdstuk is door de tekenen van Gods toorn, zo troostrijk is het eind door de verzekering van Zijn gunst, en deze gezegende verandering komt tot stand op de weg van het berouw, zodat, hoewel alleen het laatste gedeelte van dit hoofdstuk rechtstreeks naar de tijd van het Evangelie heenwijst, toch het geheel beschouwd kan worden als een type en voorbeeld van de vloek van de wet, die over de mensen komt om hun zonden, en de vertroostingen van het Evangelie, die over hen uitgestort worden, op hun bekering.   
+IV. Een voorspelling van de oprichting van het koninkrijk van de Messias in deze wereld, door de uitstorting van de Heilige Geest in het laatste van de dagen, vers 28-32. 
+
+Zo verschrikkelijk als het begin van dit hoofdstuk is door de tekenen van Gods toorn, zo troostrijk is het eind door de verzekering van Zijn gunst, en deze gezegende verandering komt tot stand op de weg van het berouw, zodat, hoewel alleen het laatste gedeelte van dit hoofdstuk rechtstreeks naar de tijd van het Evangelie heenwijst, toch het geheel beschouwd kan worden als een type en voorbeeld van de vloek van de wet, die over de mensen komt om hun zonden, en de vertroostingen van het Evangelie, die over hen uitgestort worden, op hun bekering.   
 
 ## Joël 2:1-32 
 
