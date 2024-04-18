@@ -109,6 +109,6 @@ Onze Heiland noemt hem een walvis, Mattheüs 12: 40, een uit de grotere soorten 
 Door deze wondervolle bewaring is Jona de aangewezen man om te zijn: 
 1\. Een toonbeeld van goddelijke genade, ter aanmoediging derzulken, die gezondigd hebben en van God afgeweken zijn, om berouwvol terug te keren. 
 
-2\ Een prediker, waarnaar geluisterd wordt in Nineve. Als het gerucht van dit wonder van zijn bevrijding Nineve bereikte zou het aan ‘t slagen van zijn zending bevorderlijk zijn.
+2\. Een prediker, waarnaar geluisterd wordt in Nineve. Als het gerucht van dit wonder van zijn bevrijding Nineve bereikte zou het aan ‘t slagen van zijn zending bevorderlijk zijn.
 
 3\. Een schitterend type van Christus, die begraven werd en opstond naar de Schriften, 1 Korinthe 15: 4. Naar de Schriften, want gelijk Jona drie dagen en drie nachten was in de buik van de walvis, alzo zal de Zoon des mensen drie dagen en drie nachten wezen in het hart van de aarde, Mattheüs 12: 40. Jona’s begrafenis was een beeld van de begrafenis van Christus. God beschikte Jona’s graf en ook dat van Christus, lang tevoren was het immers voorzegd, dat Hij bij de rijke in Zijn dood zou zijn, Jesaja 53: 9. Jona’s graf was een vreemd, een nieuw graf. Ook dat van Christus was nieuw, niemand was er ooit tevoren ingelegd. Jona was ‘t grootste gedeelte van drie dagen en drie nachten in het graf. Christus ook, doch beide met het doel om er weer uit te verrijzen, ten einde de leer van berouw en bekering aan de heidenwereld te brengen. Kom, zie de plaats waar de Heere gelegen heeft.
