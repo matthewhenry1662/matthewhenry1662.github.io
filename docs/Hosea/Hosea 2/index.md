@@ -27,7 +27,7 @@ De inhoud van dit hoofdstuk komt vrijwel overeen met die van het voorgaande en s
 
 I. Ontdekt God, door Zijn profeten, de zonde van het volk en bezoekt hen daarover, namelijk de zonde van hun afgoderij hun geestelijke hoererij, hun afgodendienst en vergeten van God en hun verplichtingen jegens hen, vers 1, 2, 5, 8.  
 II. Bedreigt Hij hen, dat Hij hun zal ontnemen die overvloed van allerlei goeds, waarmede zij hun afgoden hadden gediend en hen hulpeloos aan de verwoesting overgeven, vers 3-4, 6, 7, 9- 13.  
-III. Belooft Hij, om Zijnentwil, ten laatste in een weg van barmhartigheid tot hen weder te keren, vers 14, en hun vroegere overvloed weer te schenken, vers 15 hen van hun neiging tot afgoderij te verlossen, vers 16, 17, zijn verbond met hen te vernieuwen, vers 18-20, en hen met allerlei goeds te zegenen, vers 21-23.   
+III. Belooft Hij, om Zijnentwil, ten laatste in een weg van barmhartigheid tot hen weder te keren, vers 14, en hun vroegere overvloed weer te schenken, vers 15 hen van hun neiging tot afgoderij te verlossen, vers 16, 17, zijn verbond met hen te vernieuwen, vers 18-20, en hen met allerlei goeds te zegenen, vers 21-22.   
 
 ## Hoséa 2:1-22 
 

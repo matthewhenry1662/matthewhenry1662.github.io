@@ -2,13 +2,16 @@
 2. Maar gelijk zij henlieden riepen, alzo gingen zij van hun aangezicht weg; zij offerden de Baals, en rookten de gesnedenen beelden. 
 3. Ik nochtans leerde Efraïm gaan; Hij nam ze op Zijn armen, maar zij bekenden niet, dat Ik ze genas. 
 4. Ik trok ze met mensenzelen, met touwen der liefde, en was hun, als degenen, die het juk van op hun kinnebakken oplichten, en Ik reikte hem voeder toe. 
-5. Hij zal in Egypteland niet wederkeren; maar Assur, die zal zijn koning zijn; omdat zij zich weigerden te bekeren. 6 En het zwaard zal in zijn steden blijven, en zijn grendelen verteren, en opeten, vanwege hun beraadslagingen. 
+5. Hij zal in Egypteland niet wederkeren; maar Assur, die zal zijn koning zijn; omdat zij zich weigerden te bekeren. 
+6. En het zwaard zal in zijn steden blijven, en zijn grendelen verteren, en opeten, vanwege hun beraadslagingen. 
 7. Want Mijn volk blijft hangen aan de afkering van Mij; zij roepen het wel tot de Allerhoogste, maar niet een verhoogt Hem. 
 8. Hoe zou Ik u overgeven, o Efraïm? u overleveren, o Israël? Hoe zou Ik u maken als Adama, u stellen als Zeboïm? Mijn hart is in Mij omgekeerd, al Mijn berouw is tezamen ontstoken. 
 9. Ik zal de hittigheid Mijns toorns niet uitvoeren; Ik zal niet wederkeren om Efraïm te verderven; want Ik ben God en geen mens, de Heilige in het midden van u, en Ik zal in de stad niet komen. 
 10. Zij zullen de HEERE achterna wandelen, Hij zal brullen als een leeuw, wanneer Hij brullen zal, dan zullen de kinderen van de zee af al bevende aankomen. 
-11. Zij zullen bevende aankomen als een vogeltje uit Egypte, en als een duif uit het land van Assur; en Ik zal hen doen wonen in hun huizen, spreekt de HEERE. 
-12 (12:1) Die van Efraïm hebben Mij omsingeld met leugen, en het huis Israëls met bedrog; maar Juda heerste nog met God, en was met de heiligen getrouw. 
+11. Zij zullen bevende aankomen als een vogeltje uit Egypte, en als een duif uit het land van Assur; en Ik zal hen doen wonen in hun huizen, spreekt de HEERE.  
+(12:1) Die van Efraïm hebben Mij omsingeld met leugen, en het huis Israëls met bedrog; maar Juda heerste nog met God, en was met de heiligen getrouw. 
+
+## Inleiding 
 
 In dit hoofdstuk hebben wij,   
 I. de grote goedheid God jegens Zijn volk, en de grote dingen, die Hij voor hen had gedaan, vers 1, 3, 4.  
