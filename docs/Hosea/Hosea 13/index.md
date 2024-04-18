@@ -20,8 +20,8 @@ In dit hoofdstuk wordt op dezelfde, hoewel over ‘t algemeen niet zeer welluide
 
 I. Wordt het volk Israël bestraft en bedreigd om zijn afgoderij. vers 1-4.  
 II. Het wordt bestraft en bedreigd om Zijn wulpsheid, hoogmoed en weelde en andere misbruiken, van hun voorspoed en rijkdom, vers 5 -8.  
-III. Verwoesting komt over hen om deze en andere zonden, die wordt voorspeld als iets vreselijks, vers 12, 13, 15, 16.  
-IV. Degenen onder hen, die God bleven eren, worden bemoedigd in hun hoop, dat Hij zal verschijnen tot hun verlossing, al vallen hun koningen en vorsten en anderen, die hun tot steun en hulp moesten zijn weg, vers 9-11, 16.   
+III. Verwoesting komt over hen om deze en andere zonden, die wordt voorspeld als iets vreselijks, vers 13, 14, 15, 14:1.  
+IV. Degenen onder hen, die God bleven eren, worden bemoedigd in hun hoop, dat Hij zal verschijnen tot hun verlossing, al vallen hun koningen en vorsten en anderen, die hun tot steun en hulp moesten zijn weg, vers 9-11, 15.   
 
 ## Hoséa 13:1-15 
 
