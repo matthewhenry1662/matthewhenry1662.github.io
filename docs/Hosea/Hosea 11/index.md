@@ -19,9 +19,9 @@ II. Hun ondankbaar gedrag jegens Hem, ondanks al Zijn gunstbewijzen, vers 2-4, 7
 III. Bedreiging met wraak voor hun ondankbaarheid en verraad, vers 5, 6.  
 IV. Barmhartigheid gedacht te midden van de wrake, vers 8. 9.  
 V. Beloften omtrent hetgeen God nog voor hen doen wilde, vers 10, 11.  
-VI. Eer, aan Juda gegeven, vers 12.  
+VI. Eer, aan Juda gegeven, (12:1).  
 
-## Hoséa 11:1-12 
+## Hoséa 11:1-11 
 
 I\. God is Israël zeer genadig. Zij waren een volk, voor hetwelk Hij meer had gedaan dan voor enig ander volk onder de hemel en aan hetwelk Hij meer had gegeven, dat verwijt (neen, dat is het rechte woord niet, want God geeft mildelijk en verwijt niet), dat brengt Hij hun in de gedachte als vermeerdering van hun schuld en een aanmoediging om zich te bekeren.
 1. Hij had Israël liefde betoond, toen Israël nog jong was, vers 1: Als Israël een kind was toen heb Ik hem liefgehad, toen hij zich in Egypte begon te vermenigvuldigen en een volk werd, toen gaf God dat volk Zijn liefde en verkoos het, omdat Hij het liefhad, omdat hij het wilde liefhebben, Deuteronomium 7: 7, 8. Toen zij even zwak en hulpeloos waren als kinderen, even dwaas en tegenstrevend als kinderen toen zij verworpen en als het ware te vondeling gelegde kinderen waren, toen heeft God hen liefgehad. Hij had medelijden met hen en betoonde hun Zijn goedwilligheid. Hij droeg ze als een voedster de zuigeling, voedde ze en verdroeg hun zeden. Zie, zij, die opgewassen, ja, zelfs zij, die oud geworden zijn, moeten dikwijls over de goedheid nadenken, die God hun in hun jeugd betoond heeft.
