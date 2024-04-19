@@ -3,7 +3,7 @@ hide:
   - toc
 ---
 
-# De volledige bijbelverklaring van Matthew Henry online.
+# De volledige bijbelverklaring van Matthew Henry online
 
 Welkom op de online versie van de bijbelverklaring van Matthew Henry, of anders gezegd: "LETTERLIJKE EN PRACTICALE VERKLARING VAN HET OUDE EN NIEUWE TESTAMENT".
 
