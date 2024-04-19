@@ -3,7 +3,7 @@ hide:
   - toc
 ---
 
-# Welkom
+# De volledige bijbelverklaring van Matthew Henry online.
 
 Welkom op de online versie van de bijbelverklaring van Matthew Henry, of anders gezegd: "LETTERLIJKE EN PRACTICALE VERKLARING VAN HET OUDE EN NIEUWE TESTAMENT".
 
@@ -19,5 +19,5 @@ De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. 
 
     Het online zetten van deze bijbelverklaring kost veel tijd. Wil je meehelpen? Dat wordt gewaardeerd! De volledige code is beschikbaar op GitHub, waardoor u eenvoudig kunt meehelpen. Klik op de GitHub link voor meer informatie. 
 
-<label for="file">Bijbelverklaring voortgang: 5/66</label>
-<progress id="file" value="5" max="66" style="width:100%; height:25px;"></progress>
+<label for="file">Bijbelverklaring voortgang: 6/66</label>
+<progress id="file" value="6" max="66" style="width:100%; height:25px;"></progress>
