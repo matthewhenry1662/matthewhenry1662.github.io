@@ -42,7 +42,6 @@ c. Hij zal water in bloed veranderen, vers 9.
 a. Door te beloven met hem te zullen zijn, vers 11, 12.  
 b. Door hem voor die opdracht Aäron toe te voegen, vers 14-16   
 c. Door zelfs op de staf in zijn hand eer te leggen, vers 17.  
-
 II. Het begin van Mozes tenuitvoerbrenging van zijn opdracht.  
 1\. Hij ontvangt verlof van zijn schoonvader om terug te keren naar Egypte. vers 18.  
 2\. Hij ontvangt nadere instructies en verdere aanmoediging van God, vers 19-23.  
