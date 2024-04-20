@@ -75,7 +75,6 @@ nav:
   - Welkom: 'index.md'
   - Levensschets: 'levensschets.md'
   - Voorrede: 'voorrede.md'
-  - 'Oude Testament' 
   - 'Genesis': 
     - 'Genesis': 'Genesis/index.md'
     - 'Genesis 1': 'Genesis/Genesis 1/index.md'
