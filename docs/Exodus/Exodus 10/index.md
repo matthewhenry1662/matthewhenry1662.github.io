@@ -42,7 +42,7 @@ II. betreffende de plaag van de duisternis
 1\. Zij wordt opgelegd, vers 21-23.  
 2\. Nogmaals onderhandelt Farao met Mozes over zijn onderwerping, maar de onderhandeling wordt plotseling afgebroken, vers 24-29   
 
-## Exodus 10:1 – 11
+## Exodus 10:1-11
 
 I. Mozes wordt hier onderricht. Wij kunnen wel veronderstellen, dat hij voor zich verbaasd was, zowel over Farao’s hardnekkigheid, als over Gods strengheid. Hij kon ook wel niet anders dan bewogen zijn door medelijden met de Egyptenaren bij al die verwoestingen over het land, en kon zich ook niet voorstellen waar die strijd ten slotte op zou uitlopen. Nu zegt God hem hier wat Zijn bedoeling is: niet alleen Israëls verlossing, maar ook de verheerlijking van Zijn naam. Opdat gij moogt vertellen in uw geschriften, die tot aan het einde van de wereld zullen blijven bestaan, wat Ik in Egypte uitgericht hebt, vers 1, 2. De tien plagen van Egypte moeten opgelegd worden, opdat zij aan de volgende geslachten verhaald zullen worden als onloochenbare bewijzen:
 1\. Van Gods albesturende macht in het rijk van de natuur, Zijn heerschappij over al de schepselen, en Zijn macht om ze te gebruiken, hetzij om Zijn gerechtigheid te dienen, of om er onder te lijden, overeenkomstig de raad van Zijn wil.
