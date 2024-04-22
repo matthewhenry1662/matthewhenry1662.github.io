@@ -14,7 +14,6 @@ repo_url: https://github.com/matthewhenry1662/matthewhenry1662.github.io
 edit_uri: blob/main/docs/
 repo_name: matthewhenry1662.github.io
 
-
 # Configuration
 theme:
   font:
@@ -69,8 +68,7 @@ theme:
         icon: material/weather-sunny
         name: Lichte modus
 
-
-
+# Navigation menu
 nav:
   - Welkom: 'index.md'
   - Levensschets: 'levensschets.md'
@@ -1398,49 +1396,11 @@ nav:
 #    - 'Openbaring 22': 'Openbaring/Openbaring 22/index.md'
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 # Additional configuration
 extra:
-#  social:
-#    - icon: material/web
-#      link: https://lantel.nl
-#      name: LanTel Website
-#    - icon: material/list-status
-#      link: https://status.lantelcloud.nl
-#      name: LanTel Cloud Statuspagina
-#  consent:
-#    title: Wij maken gebruik van cookies.
-#    description: >-
-#        Helaas ontkomen ook wij niet aan een cookiemelding. Wij maken gebruik van cookies om jouw bezoek aan onze website zo soepel mogelijk te laten verlopen en voor eventuele marketing doeleinden. Uiteraard gaan wij met vertrouwen om met je informatie. Hierover lees je meer in ons privacy statement. 
-#    actions:
-#      - accept
    analytics:
     provider: google
     property: G-2336KH3R5S
-#    feedback:
-#      title: Heeft deze pagina je geholpen?
-#      ratings:
-#        - icon: material/emoticon-happy-outline
-#          name: Deze pagina bevat nuttige informatie
-#          data: 1
-#          note: >-
-#            Bedankt voor je feedback!
-#        - icon: material/emoticon-sad-outline
-#          name: Deze pagina kan worden verbetert
-#          data: -1
-#          note: >- 
-#            Bedankt voor je feedback!
 
 # Markdown Extensions
 markdown_extensions:
