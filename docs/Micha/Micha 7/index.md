@@ -16,7 +16,8 @@
 16. De heidenen zullen het zien, en beschaamd zijn, vanwege al hun macht; zij zullen de hand op de mond leggen; hun oren zullen doof worden. 
 17. Zij zullen het stof lekken, als de slang; als kruipende dieren der aarde, zullen zij zich beroeren uit hun sloten; zij zullen met vervaardheid komen tot de HEERE, onzen God, en zullen voor U vrezen. 
 18. Wie is een God gelijk Gij, Die de ongerechtigheid vergeeft, en de overtreding van het overblijfsel Zijner erfenis voorbij gaat? Hij houdt Zijn toorn niet in eeuwigheid; want Hij heeft lust aan goedertierenheid. 
-19. Hij zal Zich onzer weder ontfermen; Hij zal onze ongerechtigheden dempen; ja, Gij zult al hun zonden in de diepten der zee werpen. 20 Gij zult Jakob de trouw, Abraham de goedertierenheid geven, die Gij onzen vaderen van oude dagen af gezworen hebt. 
+19. Hij zal Zich onzer weder ontfermen; Hij zal onze ongerechtigheden dempen; ja, Gij zult al hun zonden in de diepten der zee werpen. 
+20. Gij zult Jakob de trouw, Abraham de goedertierenheid geven, die Gij onzen vaderen van oude dagen af gezworen hebt. 
 
 ## Inleiding 
 
