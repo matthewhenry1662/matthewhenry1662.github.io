@@ -1,0 +1,55 @@
+1. Wee der bloedstad, die gans vol leugen, en verscheuring is! de roof houdt niet op. 
+2. Er is het geklap der zweep, en het geluid van het bulderen der raderen; en de paarden stampen, en de wagens springen op. 
+3. De ruiter steekt omhoog, zo het vlammende zwaard, als de bliksemende spies, en er zal veelheid der verslagenen zijn, en een zware menigte der dode lichamen; ja, er zal geen einde zijn der lichamen, men zal over hun lichamen struikelen; 
+4. Om der grote hoererijen wil der zeer bevallige hoer, der meesteres der toverijen, die met haar hoererijen volken verkocht heeft, en geslachten met haar toverijen. 
+5. Ziet, Ik wil aan u, spreekt de HEERE der heirscharen, en Ik zal uw zomen ontdekken boven uw aangezicht, en Ik zal de heidenen uw naaktheid, en de koninkrijken uw schande wijzen. 
+6. En Ik zal verfoeilijke dingen op u werpen, en u tot schande maken, en Ik zal u als een spiegel stellen. 
+7. En het zal geschieden, dat allen, die u zien, van u wegvlieden zullen en zeggen: Nineve is verstoord, wie zal medelijden met haar hebben? Van waar zal ik u troosters zoeken? 
+8. Zijt gij beter dan No, de volkrijke, gelegen in de rivieren? die rondom heen water heeft, welker voormuur de zee is, haar muur is van zee. 
+9. Morenland en Egypte waren haar macht, en er was geen einde; Put en Lybea waren tot uw hulp. 
+10. Nog is zij gevankelijk gegaan in de gevangenis; ook zijn haar kinderen op het hoofd van alle straten verpletterd geworden; en over haar geeerden hebben zij het lot geworpen, en al haar groten zijn in boeien gebonden geworden. 
+11. Ook zult gij dronken worden, gij zult u verbergen; ook zult gij een sterkte zoeken vanwege de vijand. 
+12. Al uw vastigheden zijn vijgebomen met de eerste vruchten; indien zij geschud worden, zo vallen zij dien op de mond, die ze eten wil. 
+13. Ziet, uw volk zal in het midden van u tot vrouwen worden; de poorten uws lands zullen uw vijanden wijd geopend worden; het vuur zal uw grendelen verteren. 
+14. Schep u water ter belegering; versterk uw vastigheden; ga in de klei, en treed in het leem; verbeter de ticheloven. 
+15. Het vuur zal u aldaar verteren; het zwaard zal u uitroeien, het zal u afeten, als de kevers; vermeerder u als kevers, vermeerder u als sprinkhanen. 
+16. Gij hebt meer handelaars, dan er sterren aan de hemel zijn; de kevers zullen invallen, en ervan vliegen. 
+17. Uw gekroonden zijn als de sprinkhanen, en uw krijgsoversten als de grote kevers, die zich in de heiningmuren legeren in de koude der dagen; wanneer de zon opgaat, zo vliegen zij weg, alzo dat hun plaats onbekend is, waar zij geweest zijn. 
+18. Uw herders zullen sluimeren, o koning van Assur! uw voortreffelijken zullen zich leggen, uw volk zal zich op de bergen wijd uitbreiden, en niemand zal ze verzamelen. 
+19. Er is geen samentrekking voor uw breuk, uw plage is smartelijk; allen, die het gerucht van u horen, zullen de handen over u klappen; want over wien is uw boosheid niet geduriglijk gegaan? 
+
+## Inleiding 
+
+Dit hoofdstuk is een voortzetting van de last van Ninevé en het slot er van.
+
+I. De zonden van die grote stad worden haar ten laste gelegd, doodslag, vers 1, hoererij en tovenarij, vers 4, en een algemene beschuldiging van goddeloosheid, vers 19.  
+II. Zij wordt hier bedreigd met oordelen, bloed om bloed, vers 2, 3, en met schande om schandelijke zonden vers 5 -7.  
+III. Voorbeelden worden gegeven van dergelijke verwoestingen, over andere plaatsen gebracht, om dergelijke zonden, vers 8-11.  
+IV. De vernietiging van al die dingen, waarop zij vertrouwden, en waarin zij vertrouwen stelden, wordt voorspeld, vers 12-19.  
+
+## Nahum 3:1-6 
+
+I. Hier wordt Ninevé voor het gerecht gedaagd en in staat van beschuldiging gesteld. Het is een beschuldiging van hoogverraad tegen die grote stad, en noch het aantal van haar inwoners, noch haar grootheid zullen haar beveiligen tegen vervolging.
+1. Het is een bloedstad, waarin zeer veel onschuldig bloed vergoten is door onrechtvaardige oorlogen, of onder de schijn en het voorwendsel van openbaar recht, of door toe te laten, dat barbaarse moordenaars ongestraft bleven, hiernaar zal de rechtvaardige God onderzoek doen.
+
+2. Zij is helemaal vol leugens, de waarheid is onder hen verbannen, zo iets als eerlijkheid bestaat bij hen niet, men weet niet meer wie men geloven en vertrouwen kan.
+
+3. Zij is vol roof en verscheuring, niemand vraagt er naar of hij ook iemand benadeelt, of wie hij benadeelt: De roof houdt niet op, dat wil zeggen zij hebben nooit genoeg van roof en onderdrukking. Zij vergoten bloed, en spraken leugentaal, als zij hun prooi vervolgden om zich te verrijken.
+
+4. Er zijn grote hoererijen, dat wil zeggen afgoderij, geestelijke hoererij, waardoor zij zich verontreinigde, en waartoe zij de naburige volken verleidde, als eene begunstigde hoer, met haar hoererijen heeft zij volken verkocht.
+
+5. Zij is een meesteresse van de tooverijen, en daarmede verkoopt zij geslachten, vers 4. Het doel van Ninevé was de wereldheerschappij, zij wilde de hoofdstad van de wereld zijn en al haar naburen onder haar voeten zien, om dit tot stand te brengen gebruikte zij niet alleen de wapens, maar ook kunstgrepen, sommigen dwong zij anderen misleidde zij, om hen aan zich te onderwerpen, en verlokte hen door haar bekoorlijkheden als hoer om hun nek onder haar juk te leggen, en maakte hun wijs, dat het tot hun voordeel zou zijn. Zij vleide hen om zich bij haar te voegen in haar afgodischen dienst, om hen te vaster aan haar belangen te verbinden, en maakte gebruik van haar rijkdom, macht en grootheid, om de volken tot een verbond met haar te bewegen, waardoor zij in ‘t voordeel kwam en hen ten onder bracht. Dat waren haar hoererijen, evenals die van Tyrus, Jesaja 23:15, 17. Dat waren haar toverijen, waarmede zij op onverklaarbare wijze de heerschappij verkreeg. En hierom heeft God een twist met haar, Die uit één bloede het ganse geslacht van de mensen gemaakt heeft, en nooit bedoelde, dat het een een volk van tirannen en het andere een volk van slaven zou zijn, en die de wereldheerschappij, als Zijn koninklijk voorrecht voor Zich alleen opeist.
+
+II. Op deze aanklacht wordt Ninevé tot de ondergang veroordeeld. Wee van de bloedstad! vers 1. Zie, wat dit wee is: 
+1. Ninevé was met haar wreedheden de schrik en het verderf van anderen geweest, en daarom zal schrik en verderf over haar gebracht worden. Die gewoon zijn, allen, die in hun weg staan, neer te werpen, zullen vroeger of later hun meerdere vinden.
+a. Hoor het bericht, waarmee Ninevé verschrikt zal worden, vers 2. Het is een geducht leger, dat tegen haar optrekt, gij kunt het al van ver horen, het geklap van de zweep, die de wagenpaarden in razende vaart voortdrijft, gij kunt het geluid horen, dat gemaakt worde door het bolderen van de raderen, de paarden stampen de wagens springen op, het geluid is vreesaanjagend, maar nog veel meer, als zij weten, dat deze strijdmacht tegen hen oprukt met al dat geraas, en, dat zij niet in staat zijn, die het hoofd te bieden.
+b. Zie de slachting, waardoor Ninevé verwoest zal worden, vers 3, het zwaard is getrokken om de straf te voltrekken, het vlammende zwaard en de bliksemende spies steken omhoog, wier schitterende glans verschrikkelijk is voor hen, tegen wie zij omhoog gestoken zijn. Zie welk eene verwoesting deze aanrichten, als zij de opdracht hebben om te doden: daar is veelheid van de verslagenen want de verslagenen des lands zullen velen zijn, daar is geen einde van de lichamen, er is zulk een menigte van de dode lichamen dat het onmogelijk is ze te tellen, er liggen er zoveel, dat de voorbijgangers ieder ogenblik struikelen. De vernietiging van Sanheribs leger, toen het in de morgenstond allen dode lichamen waren, is hier misschien het voorbeeld voor een gelijke vernietiging, die later in Ninevé zou plaats hebben, want die zich niet laten waarschuwen door oordelen op een afstand, zullen zien, dat ze tot hen zullen genaken.
+
+2. Ninevé had met haar hoererij en tovenarij anderen tot schandelijke goddeloosheid verlokt, en daarom zal God haar met schande en verachting beladen, vers 5-7: De Heere van de heerscharen wil aan haar, en daarom zal zij aan de grootste schande en verachting worden prijsgegeven, zij zal niet alleen al haar bekoorlijkheden verliezen, maar zal lelijk en hatelijk van uiterlijk worden. Als men ziet, dat, terwijl zij haar naburen vleide zij hun vrijheid en eigendom wilde vermeesteren, als al haar goddeloze kunstgrepen aan het licht gebracht zijn dan wordt de heidenen haar naaktheid gewezen. Als haar trotse aanmatiging teleurgesteld is, en haar ijdele, al te vermetele hoop op eene volstrekte heerschappij over alle landen te niet gegaan is, en het blijkt, dat zij niet zo sterk en ontzagwekkend was, als zij beschouwd wilde wezen, dan zullen zij komen om te zien, waar het land bloot is, en dan zal blijken, dat zij te bespotten is. Dan zullen zij verfoeilijke dingen op haar werpen als op eene slet achter de beulskar, en haar tot schande maken als aller afschrapsel, die grote stad, wie alle volken het hof hadden gemaakt en wier bondgenootschap zij begeerden, is een schouwspel, een belaching geworden. Die vroeger tot haar opzagen, en tot haar vluchtten in de hoop op bescherming van haar, zien nu op haar neer en vlieden van haar weg, uit vrees, dat zij in haar ondergang zullen delen. Die hun macht en invloed misbruiken zullen naar recht onteerd en te schande gemaakt worden en, als ongelukkig, zullen zij verachtelijk worden en daardoor te ongelukkiger. Als Ninevé verwoest is, wie zal medelijden met haar hebben? Haar benauwdheid zal zo groot zijn en haar smart zo diep, dat zij geen verlichting toelaat van medelijden, of troost uit andere overwegingen, of, indien wel, dan zal toch niemand haar die dienst bewijzen: Van waar zal Ik u troosters zoeken. Die geen medelijden toonden ten dage van hun macht kunnen geen medelijden verwachten ten dage van hun val. Als Ninevé’s naburen, die door haar listen bedrogen waren, door haar val ontgoocheld worden, zal iedereen over haar juichen, en niemand over haar wenen. 
+Dat was Ninevé’s lot, toen zij tot een schouwspel en een belaching was geworden. Hoe groter iemands aanzien was ten dage van zijn misbruikte voorspoed, zoveel groter zal zijn schande zijn ten dage van zijn verdiend verderf. "Ik zal u tot een voorbeeld stellen", leest Drusus. Als trotse zondaars verlaagd en vernederd worden gebeurt dat, opdat anderen er een voorbeeld aan zullen nemen, om zich niet op hun zekerheid onbeschaamd te verheffen, als zij voorspoed hebben in de wereld. 
+
+
+
+## Missend stuk
+
+Nahum 3:7-19 mist hier nog...
