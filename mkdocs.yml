@@ -1043,13 +1043,9 @@ nav:
     - 'Micha 7': 'Micha/Micha 7/index.md'
   - 'Nahum': 
     - 'Nahum': 'Nahum/index.md'
-#    - 'Nahum 1': 'Nahum/Nahum 1/index.md'
-#    - 'Nahum 2': 'Nahum/Nahum 2/index.md'
-#    - 'Nahum 3': 'Nahum/Nahum 3/index.md'
-#    - 'Nahum 4': 'Nahum/Nahum 4/index.md'
-#    - 'Nahum 5': 'Nahum/Nahum 5/index.md'
-#    - 'Nahum 6': 'Nahum/Nahum 6/index.md'
-#    - 'Nahum 7': 'Nahum/Nahum 7/index.md'
+    - 'Nahum 1': 'Nahum/Nahum 1/index.md'
+    - 'Nahum 2': 'Nahum/Nahum 2/index.md'
+    - 'Nahum 3': 'Nahum/Nahum 3/index.md'
   - 'Habakuk': 
     - 'Habakuk': 'Habakuk/index.md'
 #    - 'Habakuk 1': 'Habakuk/Habakuk 1/index.md'
