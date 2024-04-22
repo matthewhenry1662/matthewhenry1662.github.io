@@ -70,7 +70,6 @@ theme:
         name: Lichte modus
 
 
-
 nav:
   - Welkom: 'index.md'
   - Levensschets: 'levensschets.md'
