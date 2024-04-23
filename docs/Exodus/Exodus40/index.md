@@ -34,7 +34,8 @@
 34. Toen bedekte de wolk de tent der samenkomst; en de heerlijkheid des HEEREN vervulde de tabernakel. 
 35. Zodat Mozes niet kon ingaan in de tent der samenkomst, dewijl de wolk daarop bleef, en de heerlijkheid des HEEREN de tabernakel vervulde. 
 36. Als nu de wolk opgeheven werd van boven de tabernakel, zo reisden de kinderen Israëls voort in al hun reizen. 
-37. Maar als de wolk niet opgeheven werd, zo reisden zij niet tot op de dag, dat zij opgeheven werd. 38 Want de wolk des HEEREN was op de tabernakel bij dag, en het vuur was er bij nacht op, voor de ogen van het ganse huis Israëls in al hun reizen. 
+37. Maar als de wolk niet opgeheven werd, zo reisden zij niet tot op de dag, dat zij opgeheven werd. 
+38. Want de wolk des HEEREN was op de tabernakel bij dag, en het vuur was er bij nacht op, voor de ogen van het ganse huis Israëls in al hun reizen. 
 
 ## Inleiding
 
