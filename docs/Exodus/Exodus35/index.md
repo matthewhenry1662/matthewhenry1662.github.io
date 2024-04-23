@@ -39,12 +39,12 @@
 Hetgeen gezegd en gedaan had moeten worden toen Mozes voor de eerste maal van de berg af kwam indien het gouden kalf niet alles in wanorde had gebracht, begint nu eindelijk, nadat met grote moeite de verzoening tot stand was gebracht, gezegd en gedaan te worden, en met de grote zaak van de oprichting van de eredienst Gods kan nu zonder stoornis worden voortgegaan.  
 
 I. Mozes geeft aan Israël de instructie, ontvangen van God, die een onmiddellijk waarnemen vereisen.  
-1. Betreffende de sabbat, vers 1 - 3.  
-2. Betreffende de bijdragen, die gegeven moesten worden voor de oprichting van de tabernakel, vers 4 - 9.  
-3. Betreffende het maken van de tabernakel en zijn gereedschappen, vers 10 - 19 II. Het volk brengt zijn bijdragen, vers 20 - 29.  
-III. De aanstelling van de hoofdwerklieden, vers 30 - 35.  
+1. Betreffende de sabbat, vers 1-3.  
+2. Betreffende de bijdragen, die gegeven moesten worden voor de oprichting van de tabernakel, vers 4-9.  
+3. Betreffende het maken van de tabernakel en zijn gereedschappen, vers 10-19 II. Het volk brengt zijn bijdragen, vers 20-29.  
+III. De aanstelling van de hoofdwerklieden, vers 30-35.  
 
-## Exodus 35:1 - 19 
+## Exodus 35:1-19 
 
 In Hoofdstuk 34:32 is gezegd in het algemeen: Mozes gebood hun al wat de Heere met hem gesproken had. Maar omdat de oprichting en de meubilering van de tabernakel het werk was, waartoe zij zich nu terstond moesten begeven, worden de orders hiervoor in bijzonderheden genoemd.
 
@@ -61,9 +61,9 @@ Het was geen belasting, die hun opgelegd werd, maar een vrijwillige bijdrage, om
 A. Dat God ons juk niet zwaar heeft gemaakt. Hij is een Vorst, die Zijn onderdanen geen zware lasten oplegt, en zich niet doet dienen met spijsoffer, maar trekt met mensenkoorden, en het aan onszelf overlaat om te oordelen hetgeen recht is. In Zijn regering is geen oorzaak tot klacht, want Hij heerst niet met strengheid.
 B. Dat God een blijmoedige gever liefheeft, en dat vrijwillige offeranden Hem het meest welbehaaglijk zijn. Die diensten zijn Hem welgevallig die komen "uit een gewillig hart van een gewillig volk," Psalm 110:3.
 
-b. Allen, die bekwaam waren, moesten werken, vers 10. Allen die wijs van hart zijn onder ulieden, zullen komen en maken. Zie hoe God Zijn gaven onderscheidenlijk uitdeelt, en, "een iegelijk, gelijk hij gave ontvangen heeft, alzo bediene hij die," 1 Petrus 4:10. Zij, die rijk waren, moesten materialen brengen om ze te bewerken, zij, die vernuftig waren, moesten de tabernakel dienen met hun verstand of vernuft, gelijk zij elkaar nodig hadden, zo had de tabernakel hen beide nodig, 1 Corinthiërs 12:7,21. Het werk moest wel voorspoedig voortgaan, als sommigen hielpen met hun beurs, anderen met hun handen, en beide met een gewillig hart. Gelijk Mozes hun gezegd had wat gegeven moet worden, vers 5 - 9, zo duidt hij hun ook onder algemene hoofden aan wat gemaakt moet worden, vers 11 - 19, opdat zij, als zij zagen hoeveel werk zij voor zich hadden, er zich met kracht en ijver op zouden toeleggen en alle handen vlug in de weer zouden zijn. En het gaf hun zo’n denkbeeld van het gebouw, dat ontworpen was, dat het wel niet anders kon, of zij moesten wensen het voltooid te zien.
+b. Allen, die bekwaam waren, moesten werken, vers 10. Allen die wijs van hart zijn onder ulieden, zullen komen en maken. Zie hoe God Zijn gaven onderscheidenlijk uitdeelt, en, "een iegelijk, gelijk hij gave ontvangen heeft, alzo bediene hij die," 1 Petrus 4:10. Zij, die rijk waren, moesten materialen brengen om ze te bewerken, zij, die vernuftig waren, moesten de tabernakel dienen met hun verstand of vernuft, gelijk zij elkaar nodig hadden, zo had de tabernakel hen beide nodig, 1 Corinthiërs 12:7,21. Het werk moest wel voorspoedig voortgaan, als sommigen hielpen met hun beurs, anderen met hun handen, en beide met een gewillig hart. Gelijk Mozes hun gezegd had wat gegeven moet worden, vers 5-9, zo duidt hij hun ook onder algemene hoofden aan wat gemaakt moet worden, vers 11-19, opdat zij, als zij zagen hoeveel werk zij voor zich hadden, er zich met kracht en ijver op zouden toeleggen en alle handen vlug in de weer zouden zijn. En het gaf hun zo’n denkbeeld van het gebouw, dat ontworpen was, dat het wel niet anders kon, of zij moesten wensen het voltooid te zien.
 
-## Exodus 35:20 - 29 
+## Exodus 35:20-29 
 
 Daar Mozes hun nu de wil van God bekend had gemaakt, gingen zij naar huis en brachten hetgeen zij gehoord hadden terstond in praktijk, vers 20. O mocht elke vergadering na het horen van het woord Gods, aldus heengaan met het vaste besluit om er daders van te zijn! Merk hier op:
 I. De offeranden, die gebracht werden voor de dienst van de tabernakel vers 21 enz. Betreffende die vele en velerlei zaken kan gezegd worden:
@@ -85,7 +85,7 @@ Pas dit toe op menselijke geleerdheid, kunsten en wetenschappen, die aan de Egyp
 
 II. Het werk, dat gedaan werd ten dienste van de tabernakel, vers 25. De vrouwen sponnen met haar handen, sommigen sponnen fijn werk in blauw en purper, anderen grof werk in geitehaar, en toch wordt ook daarvan gezegd, dat het gedaan werd in wijsheid, vers 26. Gelijk het niet slechts rijke gaven zijn, zo is het ook niet slechts fijn werk, dat Gode welbehaaglijk is. Er wordt hier nota genomen van het werk van de Godvruchtige vrouwen, evengoed als van het werk van Bezaleël en Aholiab. De geringste dienst, die tot eer van God volbracht wordt, zal een eervolle beloning verkrijgen. Van Maria’s zalven van Christus hoofd zal tot haar gedachtenis gesproken worden, Mattheüs 26:13, en er wordt een register gehouden van de vrouwen, die in de Evangelietabernakel gearbeid hebben, Filippenzen 4:3, en medewerksters zijn geweest met Paulus in Christus Jezus Romeinen 16:3. Het behoort tot de hoedanigheden van de deugdzame vrouw, "dat zij haar handen uitsteekt naar de spil," Spreuken 31:19. Deze bezigheid werd hier tot een Godvruchtig gebruik aangewend, zoals dit ook nu nog kan geschieden, (al behoeven wij ook geen gordijnen te maken voor de tabernakel) door de liefdadigheid na te volgen van Dorkas, die rokken en kleren maakte voor de weduwen, Handelingen 9:39. Zelfs zij, die het vermogen niet hebben om in barmhartigheid te geven, kunnen toch in liefde en barmhartigheid arbeiden, en zo kunnen de armen de armen helpen, en zij, die niets anders hebben dan hun ledematen en hun zinnen, kunnen zeer barmhartig zij in de arbeid van de liefde.
 
-## Exodus 35:30 - 35 
+## Exodus 35:30-35 
 
 Hier is de Goddelijke aanstelling van de voornaamste werkmeesters, opdat er geen twist zij om het ambt, en opdat allen, die in het werk gebruikt werden, er leiding in zullen ontvangen van, en er rekenschap van zullen geven aan, deze algemene opzieners, want God is een God van orde, en niet van verwarring.
 Merk op:
