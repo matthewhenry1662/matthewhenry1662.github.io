@@ -43,7 +43,7 @@ Mozes ontvangt hier instructies:
 2\. Betreffende de buitengordijnen, die van geitehaar moesten wezen ter versterking van de binnengordijnen, vers 7-13.  
 3\. Betreffende het deksel om de tabernakel te beveiligen tegen het weer, vers 14.  
 4\. Betreffende de berderen of stijlen, die opgericht moesten worden om de gordijnen te dragen, met hun voeten en richels, vers 14-30.  
-5\. Betreffende de afscheiding tussen het "heilige" en het "heilige der heiligen", vers 31-35 
+5\. Betreffende de afscheiding tussen het "heilige" en het "heilige der heiligen", vers 31-35.   
 6\. Betreffende de "voorhang" voor de ingang, vers 36,37. Deze bijzonderheden, die zo uitvoerig vermeld zijn, schijnen thans van weinig nut voor ons te zijn, daar zij echter van zo groot nut waren voor Mozes en Israël, en God het passend heeft geacht om er de herinnering van te bewaren tot op onze tijd, behoren wij ze niet voorbij te zien. Zelfs de hoge oudheid van dit bericht maakt het eerwaardig.  
 
 ## Exodus 26:1-6 
