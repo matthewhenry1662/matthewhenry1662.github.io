@@ -18,7 +18,8 @@
 18. En de ganse berg Sinai rookte, omdat de HEERE op denzelven nederkwam in vuur; en zijn rook ging op, als de rook van een oven; en de ganse berg beefde zeer. 
 19. Toen het geluid der bazuin gaande was, en zeer sterk werd, sprak Mozes; en God antwoordde hem met een stem. 
 20. Als de HEERE nedergekomen was op de berg Sinai, op de spits des bergs, zo riep de HEERE Mozes op de spits des bergs; en Mozes klom op. 
-21. En de HEERE zeide tot Mozes: Ga af, betuig dit volk, dat zij niet doorbreken tot de HEERE, om te zien, en velen van hen vallen. 22 Daartoe zullen ook de priesters, die tot de HEERE naderen, zich heiligen, dat de HEERE niet tegen hen uitbreke. 
+21. En de HEERE zeide tot Mozes: Ga af, betuig dit volk, dat zij niet doorbreken tot de HEERE, om te zien, en velen van hen vallen. 
+22. Daartoe zullen ook de priesters, die tot de HEERE naderen, zich heiligen, dat de HEERE niet tegen hen uitbreke. 
 23. Toen zeide Mozes tot de HEERE: Het volk zal op de berg Sinai niet kunnen klimmen, want Gij hebt ons betuigd, zeggende: Bepaal de berg, en heilig hem. 
 24. De HEERE dan zeide tot hem: Ga heen, klim af, daarna zult gij, en Aaron met u, opklimmen; doch dat de priesters en het volk niet doorbreken, om op te klimmen tot de HEERE, dat Hij tegen hen niet uitbreke. 
 25. Toen klom Mozes af tot het volk, en zeide het hun aan. 

@@ -28,7 +28,8 @@
 
 ## Inleiding 
 
-In dit hoofdstuk ziet Israël terug op Egypte met een lofzang voor hun bevrijding. Hier is:  
+In dit hoofdstuk:  
+I. Ziet Israël terug op Egypte met een lofzang voor hun bevrijding. Hier is:  
 1\. Het lied zelf, vers 1-19.  
 2\. Het plechtige zingen er van, vers 20, 21.  
 II. Israël gaat voorwaarts in de woestijn, vers 22, en daar:  
