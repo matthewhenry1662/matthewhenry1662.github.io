@@ -40,7 +40,7 @@ I. Sprinkhanenplaag.
 5\. Farao roept Peccavi, ik heb gezondigd, vers 16, 17, waarop Mozes bidt om de wegneming van de plaag, en zij wordt weggenomen, maar Farao’s hart blijft verhard, vers 18-20.   
 II. betreffende de plaag van de duisternis   
 1\. Zij wordt opgelegd, vers 21-23.  
-2\. Nogmaals onderhandelt Farao met Mozes over zijn onderwerping, maar de onderhandeling wordt plotseling afgebroken, vers 24-29   
+2\. Nogmaals onderhandelt Farao met Mozes over zijn onderwerping, maar de onderhandeling wordt plotseling afgebroken, vers 24-29.  
 
 ## Exodus 10:1-11
 

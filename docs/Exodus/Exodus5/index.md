@@ -21,6 +21,7 @@
 21. En zeiden tot hen: De HEERE zie op u, en richte het, dewijl dat gij onzen reuk hebt stinkende gemaakt voor Farao, en voor zijn knechten, gevende een zwaard in hun handen, om ons te doden. 
 22. Toen keerde Mozes weder tot de HEERE, en zeide: Heere! waarom hebt Gij dit volk kwaad gedaan, waarom hebt Gij mij nu gezonden? 
 23. Want van toen af, dat ik tot Farao ben ingegaan, om in Uw naam te spreken, heeft hij dit volk kwaad gedaan; en Gij hebt Uw volk geenszins verlost. 
+24. Toen zeide de HEERE tot Mozes: Nu zult gij zien, wat Ik aan Farao doen zal; want door een machtige hand zal hij hen laten trekken, ja, door een machtige hand zal hij hen uit zijn land drijven.
 
 ## Inleiding
 

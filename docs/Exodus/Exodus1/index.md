@@ -18,7 +18,8 @@
 18. Toen riep de koning van Egypte de vroedvrouwen, en zeide tot haar: Waarom hebt gijlieden deze zaak gedaan, dat gij de knechtjes in het leven behouden hebt? 
 19. En de vroedvrouwen zeiden tot Farao: Omdat de Hebreinnen niet zijn gelijk de Egyptische vrouwen; want zij zijn sterk; eer de vroedvrouw tot haar komt, zo hebben zij gebaard. 
 20. Daarom deed God aan de vroedvrouwen goed; en dat volk vermeerderde, en het werd zeer machtig. 
-21. En het geschiedde, dewijl de vroedvrouwen God vreesden, zo bouwde Hij haar huizen. 22 Toen gebood Farao aan al zijn volk, zeggende: Alle zonen, die geboren worden, zult gij in de rivier werpen, maar al de dochteren in het leven behouden. 
+21. En het geschiedde, dewijl de vroedvrouwen God vreesden, zo bouwde Hij haar huizen. 
+22. Toen gebood Farao aan al zijn volk, zeggende: Alle zonen, die geboren worden, zult gij in de rivier werpen, maar al de dochteren in het leven behouden. 
 
 ## Inleiding 
 
