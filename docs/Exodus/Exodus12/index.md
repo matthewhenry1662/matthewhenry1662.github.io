@@ -24,8 +24,7 @@
 24. Onderhoudt dan deze zaak, tot een inzetting voor u en voor uw kinderen, tot in eeuwigheid. 
 25. En het zal geschieden, als gij in dat land komt, dat u de HEERE geven zal, gelijk Hij gesproken heeft, zo zult gij dezen dienst onderhouden. 
 26. En het zal geschieden, wanneer uw kinderen tot u zullen zeggen: Wat hebt gij daar voor een dienst? 
-27. Zo zult gij zeggen: Dit is de HEERE een paasoffer, Die voor de huizen der kinderen Israëls voorbijging in Egypte, toen Hij de Egyptenaars sloeg, en onze huizen bevrijdde! 
-Toen boog zich het volk en neigde zich. 
+27. Zo zult gij zeggen: Dit is de HEERE een paasoffer, Die voor de huizen der kinderen Israëls voorbijging in Egypte, toen Hij de Egyptenaars sloeg, en onze huizen bevrijdde! Toen boog zich het volk en neigde zich. 
 28. En de kinderen Israëls gingen en deden het, gelijk als de HEERE Mozes en Aaron geboden had, alzo deden zij. 
 29. En het geschiedde ter middernacht, dat de HEERE al de eerstgeborenen in Egypteland sloeg, van de eerstgeborene van Farao af, die op zijn troon zitten zou, tot op de eerstgeborene van de gevangene, die in het gevangenhuis was, en alle eerstgeborenen der beesten. 
 30. En Farao stond op bij nacht, hij en al zijn knechten, en al de Egyptenaars; en er was een groot geschrei in Egypte; want er was geen huis, waarin niet een dode was. 
@@ -33,7 +32,8 @@ Toen boog zich het volk en neigde zich.
 32. Neemt ook met u uw schapen en uw runderen, zoals gijlieden gesproken hebt, en gaat heen, en zegent mij ook. 
 33. En de Egyptenaars hielden sterk aan bij het volk, haastende, om die uit het land te drijven; want zij zeiden: Wij zijn allen dood! 
 34. En het volk nam zijn deeg op, eer het gedesemd was, hun deegklompen, gebonden in hun klederen, op hun schouderen. 
-35. De kinderen Israëls nu hadden gedaan naar het woord van Mozes, en hadden van de Egyptenaren geeist zilveren vaten, en gouden vaten, en klederen. 36. Daartoe had de HEERE het volk genade gegeven in de ogen der Egyptenaren, dat zij hun hun begeerte deden; en zij beroofden de Egyptenaren. 
+35. De kinderen Israëls nu hadden gedaan naar het woord van Mozes, en hadden van de Egyptenaren geeist zilveren vaten, en gouden vaten, en klederen. 
+36. Daartoe had de HEERE het volk genade gegeven in de ogen der Egyptenaren, dat zij hun hun begeerte deden; en zij beroofden de Egyptenaren. 
 37. Alzo reisden de kinderen Israëls uit van Rameses naar Sukkoth, omtrent zeshonderd duizend te voet, mannen alleen, behalve de kinderkens. 
 38. En veel vermengd volk trok ook met hen op, en schapen, en runderen, gans veel vee. 
 39. En zij bakten van het deeg, dat zij uit Egypte gebracht hadden, ongezuurde koeken; want het was niet gedesemd; overmits zij uit Egypte uitgedreven werden, zodat zij niet vertoeven konden, noch ook tering voor zich bereiden. 
