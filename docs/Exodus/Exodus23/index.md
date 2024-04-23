@@ -29,7 +29,8 @@
 29. Ik zal hen in een jaar van uw aangezicht niet uitstoten, opdat het land niet woest worde, en het wild gedierte boven u niet vermenigvuldigd worde. 
 30. Ik zal hen allengskens van uw aangezicht uitstoten, totdat gij gewassen zijt en het land erft. 
 31. En Ik zal uw landpalen zetten van de zee Suf tot aan de zee der Filistijnen, en van de woestijn tot aan de rivier; want Ik zal de inwoners van dat land in uw hand geven, dat gij hen voor uw aangezicht uitstoot. 
-32. Gij zult met hen, noch met hun goden, een verbond maken. 33 Zij zullen in uw land niet wonen, opdat zij u tegen Mij niet doen zondigen; indien gij hun goden dient, het zal u voorzeker tot een valstrik zijn. 
+32. Gij zult met hen, noch met hun goden, een verbond maken. 
+33. Zij zullen in uw land niet wonen, opdat zij u tegen Mij niet doen zondigen; indien gij hun goden dient, het zal u voorzeker tot een valstrik zijn. 
 
 ## Inleiding
 
@@ -94,7 +95,10 @@ V. Er worden hier enige bijzondere aanwijzingen gegeven omtrent de drie feesten,
 2\. Op het pinksterfeest, bij het begin van hun oogst, moesten zij de eerstelingen van de eerste vruchten aan God brengen, door welke Godvruchtige offerande de gehele oogst geheiligd werd, vers 19.
 
 3\. Op het feest van de inzameling, zoals het genoemd wordt, vers 16, moeten zij Gode dank brengen voor de oogstzegeningen, die zij hadden ontvangen, en van Hem afhankelijk zijn voor de volgende oogst, en niet denken, dat zij nut of voordeel zouden verkrijgen door het bijgelovig gebruik van sommigen van de heidenen, die, naar men zegt, bij het eindigen van hun oogst een bokje kookten in de melk van zijn moeder, en dit melkkooksel onder het uitspreken van toverformules op hun tuinen en akkers sprenkelden, om ze vruchtbaar te maken voor het volgende jaar. Israël moest zulke dwaze gewoonten verafschuwen.
-Exodus 23:20-33 Drie genaderijke beloften worden hier aan Israël gedaan om hen aan te sporen tot hun plicht en er hen in aan te moedigen, en aan iedere belofte zijn enige noodzakelijke bevelen en waarschuwingen toegevoegd.
+
+## Exodus 23:20-33 
+
+Drie genaderijke beloften worden hier aan Israël gedaan om hen aan te sporen tot hun plicht en er hen in aan te moedigen, en aan iedere belofte zijn enige noodzakelijke bevelen en waarschuwingen toegevoegd.
 
 I. Er wordt hier beloofd, dat zij geleid en bewaard zullen worden op hun weg door de woestijn naar het land van de belofte: Ziet Ik zend een engel voor uw aangezicht, vers 20, Mijn engel, vers 23, een geschapen engel, zeggen sommigen, een dienaar van Gods voorzienigheid, gebruikt voor de leiding en bescherming van het kamp van Israël. Opdat het zou blijken, dat God zeer bijzonder zorg voor hen droeg, droeg Hij aan een van Zijn voornaamste dienaren op om hen te begeleiden en te zorgen, dat hun niets ontbrak. Anderen zijn van mening, dat het de Zoon van God was, de Engel des verbonds, want van de Israëlieten in de woestijn wordt gezegd, dat zij Christus veracht hebben, en wij kunnen Hem even goed Gods boodschapper onderstellen en de Verlosser van de kerk vóór Zijn menswording, als "het Lam, geslacht van voor de grondlegging van de wereld." En wij kunnen te eerder denken dat het Hem behaagd heeft om de verlossing en leiding van Israël op zich te nemen daar deze typen waren van Zijn grote onderneming. 
 Er wordt beloofd, dat deze gezegende Engel hen zal behoeden op deze weg, hoewel die eerst door de woestijn en later door des vijands land liep. Aldus zal Gods geestelijk Israël behoed worden in de woestijn van deze aarde, en tegen de aanvallen van de poorten van de hel. Er wordt ook beloofd, dat Hij hen brengen zal naar de plaats, die God niet alleen voor hen bestemd, maar bereid heeft, en aldus heeft Christus een plaats bereid voor Zijn volgelingen, en zal hen er voor bewaren, want Hij is getrouw aan Hem, die Hem gesteld heeft.
