@@ -9,18 +9,20 @@
 9. Zes dagen zult gij arbeiden en al uw werk doen; 
 10. Maar de zevende dag is de sabbat des HEEREN uws Gods; dan zult gij geen werk doen, gij, noch uw zoon, noch uw dochter, noch uw dienstknecht, noch uw dienstmaagd, noch uw vee, noch uw vreemdeling, die in uw poorten is; 
 11. Want in zes dagen heeft de HEERE de hemel en de aarde gemaakt, de zee en al wat daarin is, en Hij rustte ten zevenden dage; daarom zegende de HEERE de sabbatdag, en heiligde denzelven. 
-12. Eert uw vader en uw moeder, opdat uw dagen verlengd worden in het land, dat u de HEERE uw God geeft. 13 Gij zult niet doodslaan. 
+12. Eert uw vader en uw moeder, opdat uw dagen verlengd worden in het land, dat u de HEERE uw God geeft. 
+13. Gij zult niet doodslaan. 
 14. Gij zult niet echtbreken. 
-15. Gij zult niet stelen. 16 Gij zult geen valse getuigenis spreken tegen uw naaste. 
+15. Gij zult niet stelen. 
+16. Gij zult geen valse getuigenis spreken tegen uw naaste. 
 17. Gij zult niet begeren uws naasten huis; gij zult niet begeren uws naasten vrouw, noch zijn dienstknecht, noch zijn dienstmaagd, noch zijn os, noch zijn ezel, noch iets, dat uws naasten is. 
 18. En al het volk zag de donderen, en de bliksemen, en het geluid der bazuin, en de rokenden berg; toen het volk zulks zag, weken zij af, en stonden van verre; 
 19. En zij zeiden tot Mozes: Spreek gij met ons, en wij zullen horen; en dat God met ons niet spreke, opdat wij niet sterven! 20 En Mozes zeide tot het volk: Vreest niet, want God is gekomen, opdat Hij u verzocht, en opdat Zijn vreze voor uw aangezicht zou zijn, dat gij niet zondigdet. 
-21. En het volk stond van verre; maar Mozes naderde tot de donkerheid, alwaar God was. 
-22. Toen zeide de HEERE tot Mozes: Aldus zult gij tot de kinderen Israëls zeggen: Gij hebt gezien, dat Ik met ulieden van de hemel gesproken heb. 
-23. Gij zult nevens Mij niet maken zilveren goden, en gouden goden zult gij u niet maken. 
-24. Maakt Mij een altaar van aarde, en offert daarop uw brandofferen, en uw dankofferen, uw schapen, en uw runderen; aan alle plaats, waar Ik Mijns Naams gedachtenis stichten zal, zal Ik tot u komen, en zal u zegenen. 
-25. Maar indien gij Mij een stenen altaar zult maken, zo zult gij dit niet bouwen van gehouwen steen; zo gij uw houwijzer daarover verheft, zo zult gij het ontheiligen. 
-26. Gij zult ook niet met trappen tot Mijn altaar opklimmen, opdat uw schaamte voor hetzelve niet ontdekt worde. 
+20. En het volk stond van verre; maar Mozes naderde tot de donkerheid, alwaar God was. 
+21. Toen zeide de HEERE tot Mozes: Aldus zult gij tot de kinderen Israëls zeggen: Gij hebt gezien, dat Ik met ulieden van de hemel gesproken heb. 
+22. Gij zult nevens Mij niet maken zilveren goden, en gouden goden zult gij u niet maken. 
+23. Maakt Mij een altaar van aarde, en offert daarop uw brandofferen, en uw dankofferen, uw schapen, en uw runderen; aan alle plaats, waar Ik Mijns Naams gedachtenis stichten zal, zal Ik tot u komen, en zal u zegenen. 
+24. Maar indien gij Mij een stenen altaar zult maken, zo zult gij dit niet bouwen van gehouwen steen; zo gij uw houwijzer daarover verheft, zo zult gij het ontheiligen. 
+25. Gij zult ook niet met trappen tot Mijn altaar opklimmen, opdat uw schaamte voor hetzelve niet ontdekt worde. 
 
 ## Inleiding 
 
