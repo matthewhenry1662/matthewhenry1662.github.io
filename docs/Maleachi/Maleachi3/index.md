@@ -14,7 +14,8 @@
 14. Gij zegt: Het is tevergeefs God te dienen; want wat nuttigheid is het, dat wij Zijn wacht waarnemen, en dat wij in het zwart gaan, voor het aangezicht des HEEREN der heirscharen? 
 15. En nu, wij achten de hoogmoedigen gelukzalig; ook die goddeloosheid doen, worden gebouwd; ook verzoeken zij de HEERE, en ontkomen. 
 16. Alsdan spreken, die de HEERE vrezen, een ieder tot zijn naaste: De HEERE merkt er toch op en hoort, en er is een gedenkboek voor Zijn aangezicht geschreven, voor degenen, die de HEERE vrezen, en voor degenen, die aan Zijn Naam gedenken. 
-17. En zij zullen, zegt de HEERE der heirscharen, te dien dage, dien Ik maken zal, Mij een eigendom zijn; en Ik zal hen verschonen, gelijk als een man zijn zoon verschoont, die hem dient. 18 Dan zult gijlieden wederom zien, het onderscheid tussen de rechtvaardige en de goddeloze, tussen dien, die God dient, en dien, die Hem niet dient. 
+17. En zij zullen, zegt de HEERE der heirscharen, te dien dage, dien Ik maken zal, Mij een eigendom zijn; en Ik zal hen verschonen, gelijk als een man zijn zoon verschoont, die hem dient. 
+18. Dan zult gijlieden wederom zien, het onderscheid tussen de rechtvaardige en de goddeloze, tussen dien, die God dient, en dien, die Hem niet dient. 
 
 ## Inleiding
 

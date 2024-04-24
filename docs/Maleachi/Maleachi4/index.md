@@ -7,12 +7,12 @@
 
 ## Inleiding
 
-Wij ontvangen hier een zeer gepast onderwijs (zeer gepast als slot van de kanon des Ouden Testaments) 
+Wij ontvangen hier een zeer gepast onderwijs (zeer gepast als slot van de kanon des Ouden Testaments)   
 I. Aangaande de staat van beloning of vergelding, die ons is voorgesteld, de ellende van de goddelozen en de gelukzaligheid van de rechtvaardigen, vers 1-3. Dit wordt ons voorgesteld door de profetie van Jeruzalems verwoesting en de ondergang van de ongelovige Joden, en van de troost en triomf dergenen, die het Evangelie aannamen.  
 II. Aangaande de toestand van beproeving en voorbereiding, waarin wij nu verkeren, waardoor ons geleerd wordt, een open oog te hebben voor de goddelijke openbaring en die te volgen. Zij moeten zich aan de wet van Mozes houden, vers 4, en verdere openbaring van God door Elia de profeet verwachten, namelijk door Johannes de Doper, de voorloper van de Messias, vers 5, 6.  
 Het laatste hoofdstuk van het Nieuwe Testament heeft vrijwel gelijk doel, als het hemel en hel in de toekomende wereld ons voorstelt, en ons vermaant in deze ons te houden aan Gods Woord.  
 
-## Maleáchi 4:1-3. 
+## Maleáchi 4:1-3
 
 De grote en vreselijke dag des Heeren wordt hier geprofeteerd. Gelijk de wolk- en vuurkolom, zal die een donkere zijde hebben, naar de Egyptenaars gewend, die tegen God strijden, en een lichtzijde, naar de gelovige Israëlieten toegekeerd. De dag komt, dat is: de Heere komt, de dag des Heeren komt. En dit heeft betrekking zowel op Zijn eerste als op Zijn wederkomst, beide dagen zijn bepaald, en beide beantwoorden aan de hier gegeven schildering.
 
