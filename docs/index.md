@@ -26,7 +26,7 @@ In deze fase zal de volledige bijbelverklaring online worden gezet.
 
 2\. Verbeteren van de leesbaarheid
   
-In deze fase wordt gekeken om de leesbaarheid per hoofdstuk (1189 stuks) te verbeteren. De bijbelverklaring is door de vele punten niet altijd overzichtelijk bij het lezen. Geprobeerd wordt om dit te verbeteren. **Uitgangspunt is dat de tekst onveranderd blijft**. Alleen het toevoegen van alinea's en het beginnen van punten op een nieuwe regel zal worden toegepast.
+In deze fase wordt gekeken om de leesbaarheid per hoofdstuk (1189 hoofdstukken) te verbeteren. De bijbelverklaring is door de vele punten niet altijd overzichtelijk bij het lezen. Geprobeerd wordt om dit te verbeteren. **Uitgangspunt is dat de tekst onveranderd blijft**. Alleen het toevoegen van alinea's en het beginnen van punten op een nieuwe regel zal worden toegepast.
  
 <label for="file">Voortgang fase 2: 0/1189 Hoofdstukken</label><progress id="file" value="0" max="1189" style="width:80%; height:25px;"></progress> 
 
