@@ -25,7 +25,7 @@
 ## Inleiding
 
 Het werk van predikanten is het woord van de waarheid recht te verdelen en ieder ‘t zijne te geven. De profeet wordt hier onderricht eveneens te doen in het vervolg op het antwoord, dat hij geeft op de gewetensvraag, die hem gedaan is ten aanzien van de algemene vastendagen. Zijn antwoord in het vorige hoofdstuk is bij wijze van verwijt aan hen, die ongehoorzaam waren en naar de waarheid niet wilden horen. Maar hier wordt hem bevolen een anderen toon aan te slaan, en tot de gewilligen en gehoorzamen te spreken bij wijze van bemoediging. Hier zijn twee woorden van de Heere der heerscharen, en het zijn beide goede en troostrijke woorden. In de eerste van deze beide boodschappen vers 1, belooft God, dat Jeruzalem hersteld, verbeterd en vervuld zal worden, vers 2-8, dat het land rijk zal zijn, en de toestand van het volk voorspoedig, hun goede naam herwonnen worden, en hun staat in alle opzichten het omgekeerde van wat hij vele jaren lang geweest was, vers 9-15, dan vermaant hij hen te verbeteren wat onder hen verkeerd was, opdat zij bereid mochten zijn voor de gunsten, die voor hen bestemd waren, vers 16, 17.  
-In de tweede boodschap, vers 18, belooft hij, dat hun vastendagen door de terugkeer van de genade overbodig worden zouden, vers 19, en dat zij daarop talrijk, verrijkt en versterkt worden, door de toetreding van vreemden tot hen, vers 20- 23.  
+In de tweede boodschap, vers 18, belooft hij, dat hun vastendagen door de terugkeer van de genade overbodig worden zouden, vers 19, en dat zij daarop talrijk, verrijkt en versterkt worden, door de toetreding van vreemden tot hen, vers 20-23.  
 
 ## Zacharia 8:1-23 
 
