@@ -34,11 +34,6 @@ wel wordt er gelet op de volgende dingen:
 
 In deze fase zal er per hoofdstuk worden gekeken naar de verbetering van de leesbaarheid. Dit wordt gedaan door het ordenen van punten, subpunten, enz. Gezien het origineel is deze verbetering niet als een standaard in te brengen, maar zal dit per hoofdstuk bekeken worden. Let hierbij op dat de originele tekst niet mag worden aangepast. De originele tekst moet gehandhaafd blijven. 
 
-### Fase 3
-
-In deze fase zullen verdere verbeteringen worden toegevoegd zoals tekst verwijzingen. 
-Genesis 1 is een voorbeeld van het uiteindelijke doel.
-
 ### Overige richtlijnen
 
 #### Bijbel teksten
