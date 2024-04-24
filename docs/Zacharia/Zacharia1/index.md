@@ -24,7 +24,7 @@
 
 In dit hoofdstuk hebben wij na de inleiding, vers 1, 
 
-I. Een oproeping van een zondig volk om hen op te wekken tot berouw over hun zonden en terugkeer tot God, vers 2-6. 
+I. Een oproeping van een zondig volk om hen op te wekken tot berouw over hun zonden en terugkeer tot God, vers 2-6.  
 II. Een krachtige aanmoediging om op genade te hopen.  
 1. Door het visioen van de paarden vers 7-11.  
 2. Door het gebed van de engel voor Jeruzalem, en het antwoord op dat gebed, vers 12-17.  

@@ -23,7 +23,8 @@ Zij heeft tot opschrift: "De last van het woord van de Heere", want ieder woord 
 
 I. Een profetie tegen de onrechtvaardige naburen van de Joden- Syriërs, Tyriërs, Filistijnen, en anderen, vers 1-6, met een aanduiding van genade voor sommigen van hen, als zij zich bekeren, vers 7, en een belofte van goedgunstigheid voor Gods volk, tot hun bescherming, vers 8.  
 II. Een belofte van de Koning van de gerechtigheid, de Messias, en Zijn komst, met een beschrijving van Hem, vers 9 en van Zijn koninkrijk, de aard en de uitgebreidheid ervan, vers 10.  
-III. Een uiteenzetting van de verplichtingen aan Christus, die de Joden hadden wegens hun verlossing uit de gevangenschap te Babel, vers 11, 12. IV Een profetie van de overwinningen en de voorspoed, die God aan de Joden schenken zou tegen hun vijanden, als een voorbeeld van onze grote verlossing door Christus, vers 13-15.  
+III. Een uiteenzetting van de verplichtingen aan Christus, die de Joden hadden wegens hun verlossing uit de gevangenschap te Babel, vers 11, 12.  
+IV Een profetie van de overwinningen en de voorspoed, die God aan de Joden schenken zou tegen hun vijanden, als een voorbeeld van onze grote verlossing door Christus, vers 13-15.  
 V. Een belofte van grote overvloed, en vreugde en eer, die God voor Zijn volk bewaard had, vers 16, 17, die tot hun bemoediging geschreven werd.  
 
 
