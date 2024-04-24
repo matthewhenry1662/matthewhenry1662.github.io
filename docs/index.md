@@ -18,13 +18,13 @@ De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. 
 
 De bijbelverklaring zal in 2 fases volledig online worden gezet. 
 
-1\. Het online zetten van de volledig bijbelverklaring
+### Fase 1. Het online zetten van de volledig bijbelverklaring
 
 In deze fase zal de volledige bijbelverklaring online worden gezet.
 
 <label for="file">Voortgang fase 1: 14/66 Bijbelboeken</label><progress id="file" value="14" max="66" style="width:80%; height:25px;"></progress> 
 
-2\. Verbeteren van de leesbaarheid
+### Fase 2. Verbeteren van de leesbaarheid
   
 In deze fase wordt gekeken om de leesbaarheid per hoofdstuk (1189 hoofdstukken) te verbeteren. De bijbelverklaring is door de vele punten niet altijd overzichtelijk bij het lezen. Geprobeerd wordt om dit te verbeteren. **Uitgangspunt is dat de tekst onveranderd blijft**. Alleen het toevoegen van alinea's en het beginnen van punten op een nieuwe regel zal worden toegepast.
  
