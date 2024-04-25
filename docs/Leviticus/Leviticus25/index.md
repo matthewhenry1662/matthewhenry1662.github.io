@@ -83,9 +83,9 @@ e. Zij moesten in voortdurende afhankelijkheid leven van de Goddelijke voorzieni
 f. Zij werden herinnerd aan het geruste leven, dat de mens in het paradijs heeft geleid, toen hij alle goede dingen at, niet zoals later in het zweet zijns aanschijns. Arbeid en moeite zijn met de zonde in de wereld gekomen. g. Hen werd geleerd te bedenken hoe de armen leefden, die zaaiden noch oogstten, namelijk door de zegen Gods op een weinig. 
 g. Eindelijk. Dit jaar van rust was een type van de geestelijke rust, waartoe alle gelovigen ingaan door Christus, onze ware Noach, die ons troost en rust geeft over ons werk en over de smart van onze handen, vanwege het aardrijk dat de Heere vervloekt heeft, Genesis 5:29. Door Hem worden wij ontheven van de last van wereldse zorg en moeite en instaat gesteld en aangemoedigd om door het geloof te leven. En gelijk de vruchten van deze sabbat des lands gemeenschappelijk werden gebruikt en genoten, zo is de zaligheid door Christus gewerkt een gewone zaligheid, en dit sabbatsjaar scheen herleefd te zijn in de Christelijke kerk, toen de gelovigen alle dingen gemeenschappelijk hadden, Handelingen 2:44.
 
-## Leviticus 25:8 – 22
+## Leviticus 25:8-22
 
-I. Hier is de algemene instelling van het Jubeljaar, vers 8 en verv.
+I. Hier is de algemene instelling van het Jubeljaar, vers 8-22.
 
 1\. Wanneer het gevierd moest worden, na zeven jaarweken, vers 8. Of het het negen erf veertigste of vijftigste was, daarover zijn de geleerden het onderling niet eens. Dat het het zevende sabbatsjaar was, dat is: het negen en veertigste (dat naar een algemeen gebruikelijke zegswijze het vijftigste genoemd wordt) schijnt mij het waarschijnlijkst, en is, geloof ik, duidelijk aangetoond door de geleerde tijdrekenkundige Calvisius, die alle tegenwerping voldoende weerlegd heeft, maar het is hier de plaats niet om dit nader te betogen. Zeven sabbatten van weken werden geteld van het pascha tot het pinksterfeest, (of de vijftigste dag, want dat betekent het woord pinksteren) en zo waren er zeven sabbatten van jaren van het ene Jubeljaar tot het andere, en het zevende zeven wordt het vijftigste genoemd, en al die eer wordt gelegd op de zevende, omdat God op de zevende dag van het werk van de schepping heeft gerust.
 
