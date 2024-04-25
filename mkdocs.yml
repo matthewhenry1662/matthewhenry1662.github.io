@@ -68,6 +68,7 @@ theme:
         icon: material/weather-sunny
         name: Lichte modus
 
+
 # Navigation menu
 nav:
   - Welkom: 'index.md'
