@@ -19,10 +19,10 @@
 
 Na de wet betreffende de verzoening, die door de hogepriester voor geheel Israël door het bloed van stieren en bokken in de tabernakel gedaan werd, hebben wij in dit hoofdstuk twee verbodsbepalingen nodig voor de bewaring van de eer van die verzoening.
 
-## Leviticus 17:1-9 
-
 I. Dat geen offer door iemand anders dan de priesters geofferd mocht worden, noch aan enigerlei andere plaats dan aan de deur van de tabernakel, en dat wel op straffe des doods, vers 1-9.  
-II. En dat geen bloed mocht gegeten worden, en dat wel met dezelfde strafbedreiging, vers 10- 16. Deze wet legde aan geheel Israël de verplichting op om al hun offeranden op Gods altaar te brengen, teneinde aldaar geofferd te worden.   
+II. En dat geen bloed mocht gegeten worden, en dat wel met dezelfde strafbedreiging, vers 10-16. Deze wet legde aan geheel Israël de verplichting op om al hun offeranden op Gods altaar te brengen, teneinde aldaar geofferd te worden.   
+
+## Leviticus 17:1-9 
 
 En ten opzichte van die zaak hebben wij na te gaan: 
 I. Hoe het er tevoren mee stond:

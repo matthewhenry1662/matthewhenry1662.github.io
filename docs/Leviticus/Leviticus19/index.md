@@ -46,7 +46,7 @@ I. De wetten van dit hoofdstuk, welke bijzonder de Joden golden, zijn:
 3\. Tegen vermenging van hun vee, hun zaad en de stof van hun kleren, vers 19.  
 4\. Betreffende hun bomen vers 23-25.  
 5\. Betreffende sommige bijgelovige gebruiken, vers 26-28. Maar:  
-II. De meesten van deze wetten zijn verplichtend ook voor ons, want het zijn verklaringen van de meesten van de tien geboden. 
+II. De meesten van deze wetten zijn verplichtend ook voor ons, want het zijn verklaringen van de meesten van de tien geboden.  
 1\. Hier is de inleiding van de Tien Geboden: IK BEN DE HEERE, vijftien maal herhaald.  
 2\. Het kort begrip van de Tien Geboden geheel de eerste tafel vervat in deze woorden: GIJ ZULT HEILIG ZIJN, vers 2, geheel de tweede tafel in deze GIJ ZULT UW NAASTE LIEFHEBBEN ALS UZELF vers 18, en een antwoord op de vraag: WIE IS MIJN NAASTE? vers 33, 34.  
 3\. iets over elk gebod.   
@@ -58,8 +58,7 @@ e. Van kinderen wordt geëist hun ouders te eren, vers 3, en oude lieden, vers 3
 f. Haat en wraak worden hier verboden, tegen het zesde gebod, vers 17, 18.   
 g. Overspel, vers 20-22 , en hoererij, vers 29.   
 h. Er wordt rechtvaardigheid geëist in het gericht, vers 15, diefstal verboden, vers 11, bedrog, het onthouden van loon, vers 13 valse gewichten, vers 35, 36.  
-
-I. Liegen, vers 11, lasteren, vers 14, achterklap en vals getuigenis, vers 16. 10. Het tiende gebod legt beslag op het hart, en dit wordt evenzo uitgedrukt door deze woorden in vers 17 : GIJ ZULT UW BROEDER IN UW HART NIET HATEN. En hier is een plechtige last om al die inzettingen en rechten te onderhouden, vers 37. Dit nu zijn dingen, die niet veel hulp nodig hebben om ze te doen verstaan, maar wel voortdurende zorg en waakzaamheid behoeven om ze te onderhouden. Een goed VERSTAND hebben zij, die deze geboden doen.
+i. Liegen, vers 11, lasteren, vers 14, achterklap en vals getuigenis, vers 16. 10. Het tiende gebod legt beslag op het hart, en dit wordt evenzo uitgedrukt door deze woorden in vers 17 : GIJ ZULT UW BROEDER IN UW HART NIET HATEN. En hier is een plechtige last om al die inzettingen en rechten te onderhouden, vers 37. Dit nu zijn dingen, die niet veel hulp nodig hebben om ze te doen verstaan, maar wel voortdurende zorg en waakzaamheid behoeven om ze te onderhouden. Een goed VERSTAND hebben zij, die deze geboden doen.
 
 ## Leviticus 19:1-10 
 
