@@ -2,7 +2,8 @@
 2. Spreekt tot de kinderen Israëls, zeggende: Dit is het gedierte, dat gij eten zult uit alle beesten, die op de aarde zijn. 
 3. Al wat onder de beesten de klauw verdeelt, en de kloof der klauwen in tweeen klieft, en herkauwt, dat zult gij eten. 
 4. Deze nochtans zult gij niet eten, van degenen, die alleen herkauwen, of de klauwen alleen verdelen: de kemel, want hij herkauwt wel, maar verdeelt de klauw niet; die zal u onrein zijn; 
-5. En het konijntje, want het herkauwt wel, maar verdeelt de klauw niet; dat zal u onrein zijn; 6 En de haas, want hij herkauwt wel, maar verdeelt de klauw niet; die zal u onrein zijn. 
+5. En het konijntje, want het herkauwt wel, maar verdeelt de klauw niet; dat zal u onrein zijn; 
+6. En de haas, want hij herkauwt wel, maar verdeelt de klauw niet; die zal u onrein zijn. 
 7. Ook het zwijn, want dat verdeelt wel de klauw, en klieft de klove der klauwen in tweeen, maar herkauwt het gekauwde niet; dat zal u onrein zijn. 
 8. Van hun vlees zult gij niet eten, en hun dood aas niet aanroeren, zij zullen u onrein zijn. 
 9. Dit zult gij eten van al wat in de wateren is: al wat in de wateren, in de zeeen en in de rivieren, vinnen en schubben heeft, dat zult gij eten; 
@@ -10,7 +11,8 @@
 11. Ja, een verfoeisel zullen zij u zijn; van hun vlees zult gij niet eten, en hun dood aas zult gij verfoeien. 
 12. Al wat in de wateren geen vinnen en schubben heeft, dat zal u een verfoeisel zijn. 
 13. En van het gevogelte zult gij deze verfoeien, zij zullen niet gegeten worden, zij zullen een verfoeisel zijn: de arend, en de havik, en de zeearend, 
-14. En de gier, en de kraai, naar haar aard; 15 Alle rave naar haar aard; 
+14. En de gier, en de kraai, naar haar aard; 
+15. Alle rave naar haar aard; 
 16. En de struis, en de nachtuil, en de koekoek, en de sperwer naar zijn aard; 
 17. En de steenuil, en het duikertje, en de schuifuit, 
 18. En de kauw, en de roerdomp, en de pelikaan, 
@@ -18,7 +20,8 @@
 20. Alle kruipend gevogelte, dat op vier voeten gaat, zal u een verfoeisel zijn. 
 21. Dit nochtans zult gij eten van al het kruipend gevogelte, dat op vier voeten gaat, hetwelk boven aan zijn voeten schenkelen heeft, om daarmede op de aarde te springen; 
 22. Van die zult gij deze eten: de sprinkhaan naar zijn aard, en de solham naar zijn aard, en de hargol naar zijn aard, en de hagab naar zijn aard. 
-23. En alle kruipend gevogelte, dat vier voeten heeft, zal u een verfoeisel zijn. 24 En aan deze zult gij verontreinigd worden; zo wie hun dood aas zal aangeroerd hebben, zal onrein zijn tot aan de avond. 
+23. En alle kruipend gevogelte, dat vier voeten heeft, zal u een verfoeisel zijn. 
+24. En aan deze zult gij verontreinigd worden; zo wie hun dood aas zal aangeroerd hebben, zal onrein zijn tot aan de avond. 
 25. Zo wie van hun dood aas gedragen zal hebben, zal zijn klederen wassen, en onrein zijn tot aan de avond. 
 26. Alle beest, dat de klauw verdeelt, doch de klove niet in tweeen klieft, en niet herkauwt, zal u onrein zijn; zo wie hetzelve aangeroerd zal hebben, zal onrein zijn. 
 27. En al wat op zijn poten gaat onder alle gedierte, op vier voeten gaande, die zullen u onrein zijn; al wie hun dood aas aangeroerd zal hebben, zal onrein zijn tot aan de avond. 
