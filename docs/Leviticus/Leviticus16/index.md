@@ -46,7 +46,7 @@ IV. Voor het volk moeten twee geitenbokken gebracht worden, en het lot over hen 
 V. Dan moesten de brandoffers geofferd worden, het vet van de zondoffers op het altaar, en hun vlees buiten het leger worden verbrand, vers 23-25, 27, 28.  
 VI. Het volk moest de dag Godsdienstig waarnemen door een heilige rust en een heilig treuren om hun zonde, en dit moest een eeuwige inzetting zijn, vers 29-34.  
 
-$$ Leviticus 16:1-4 
+## Leviticus 16:1-4 
 
 Hier is:
 1\. De datum van deze wet betreffende de verzoendag: het was na de dood van de twee zonen van Aäron, vers 1, waarvan wij gelezen hebben in Hoofdstuk 10:1. 
