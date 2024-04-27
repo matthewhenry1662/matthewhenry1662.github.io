@@ -322,10 +322,10 @@ nav:
 #    - 'Richteren 21': 'Richteren/Richteren 21/index.md'
   - 'Ruth': 
     - 'Ruth': 'Ruth/index.md'
-#    - 'Ruth 1': 'Ruth/Ruth 1/index.md'
-#    - 'Ruth 2': 'Ruth/Ruth 2/index.md'
-#    - 'Ruth 3': 'Ruth/Ruth 3/index.md'
-#    - 'Ruth 4': 'Ruth/Ruth 4/index.md'
+    - 'Ruth 1': 'Ruth/Ruth1/index.md'
+    - 'Ruth 2': 'Ruth/Ruth2/index.md'
+    - 'Ruth 3': 'Ruth/Ruth3/index.md'
+    - 'Ruth 4': 'Ruth/Ruth4/index.md'
   - '1 Samuël': 
     - '1 Samuël': '1Samuel/index.md'
 #    - '1 Samuël 1': '1Samuel/1Samuel1/index.md'
