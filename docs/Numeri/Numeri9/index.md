@@ -27,12 +27,12 @@
 Dit hoofdstuk handelt: 
 
 I. Over de grote inzetting van het pascha:  
-1\. Er worden orders gegeven voor de viering er van bij de terugkeer van het jaar, vers 1 - 5.  
-2\. Er worden voorwaarden bijgevoegd voor het geval van hen, die ceremoniëel onrein zijn of op andere wijze onbevoegd, op de tijd wanneer het pascha gehouden moest worden, vers 6 - 14.  
-II. Over de grote gunst van de wolkkolom, die Israël ten gids was door de woestijn, vers 15 - 23.  
+1\. Er worden orders gegeven voor de viering er van bij de terugkeer van het jaar, vers 1-5.  
+2\. Er worden voorwaarden bijgevoegd voor het geval van hen, die ceremoniëel onrein zijn of op andere wijze onbevoegd, op de tijd wanneer het pascha gehouden moest worden, vers 6-14.  
+II. Over de grote gunst van de wolkkolom, die Israël ten gids was door de woestijn, vers 15-23.  
 
 
-## Numeri 9:1 - 14 
+## Numeri 9:1-14 
 
 I. Wij hebben hier een order voor de plechtige viering van het pascha een jaar nadat zij uit Egypte waren getogen, en wel op de veertiende dag van de eerste maand van het tweede jaar, enige dagen voordat zij geteld werden want dat geschiedde in het begin van de tweede maand. Merk op:
 1\. Dat God bijzondere orders gaf voor het vieren van dit pascha, anders zouden zij het (naar het schijnt) niet gevierd hebben, want bij de eerste instelling er van was bepaald, dat zij het zouden houden, als zij in het land van de belofte zouden gekomen zijn, Exodus 12:25. En voorzover blijkt, hebben zij daarna geen pascha gevierd vóór zij in Kanaän kwamen, Jozua 5:10. Het was reeds vroeg een aanduiding van de eindelijke afschaffing van de ceremoniëele inzettingen, dat de waarneming van sommigen er van zo spoedig nadat zij waren ingesteld, gedurende zovele jaren werd nagelaten. 
@@ -61,7 +61,7 @@ b. Als het pascha in de tweede maand gevierd werd, dan moesten zij het nauwkeuri
 c. Deze vergunning in een geval van noodzakelijkheid moet toch niemand steunen in hun verzuim van het pascha op de gezette tijd te houden, als zo’n geval van noodzakelijkheid niet aanwezig was vers 13. Als iemand niet onbevoegd is om het pascha op de bestemde tijd te eten, en hij laat het na, op grond - naar hij waant -  van de vrijheid, die door deze wet toegestaan wordt dan beledigt hij God, goddelooslijk misbruik makende van Zijn goedheid, dan zal hij gewis zijn zonde dragen en uit zijn volken uitgeroeid worden. Evenals zij, die tegen hun zin en gemoed genoodzaakt zijn van Gods inzettingen weg te blijven, gerust de gunst van Gods genade kunnen verwachten onder hun beproeving, zo kunnen zij, die door hun eigen keus wegblijven met volle recht de tekenen verwachten van Gods toorn over hun zonde. Dwaalt niet, God laat zich niet bespotten. Er wordt ook een bepaling bijgevoegd ten gunste van vreemdelingen, vers 14. 
 Hoewel het van de vreemdeling, die zich met hen wilde verenigen om het pascha te eten, geëist werd, dat hij besneden zou zijn als een proseliet van hun Godsdienst, Exodus 12:48, 49, was toch deze vriendelijke toelating van hen, die geen geboren Israëlieten waren, om het pascha te eten, een aanduiding van de gunst, die door Christus voor de arme heidenen was weggelegd. Gelijk er toen een wet was, zo zal er in de dagen van de Messias een Evangelie zijn, voor de vreemdeling en voor de inboorling, want "want onder elk volk, is wie Hem vereert en gerechtigheid werkt, Hem welgevallig," en dit was een waarheid voordat Petrus haar vernomen heeft, Handelingen 10:34, 35.
 
-## Numeri 9:15 - 23 
+## Numeri 9:15-23 
 
 Wij hebben hier de geschiedenis van de wolk geen natuurlijke geschiedenis wie heeft de wetenschap van de opwegingen de, dikke wolken? maar een Goddelijke geschiedenis van een wolk, die bestemd was om een zichtbaar teken en symbool te wezen van Gods tegenwoordigheid onder Israël.
 
