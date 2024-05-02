@@ -18,11 +18,11 @@ De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. 
 
 De bijbelverklaring zal in 2 fases volledig online worden gezet. 
 
-### Fase 1. Het online zetten van de volledig bijbelverklaring
+### Fase 1. Het online zetten van de volledige bijbelverklaring
 
 In deze fase zal de volledige bijbelverklaring online worden gezet.
 
-<label for="file">Voortgang fase 1: 15/66 Bijbelboeken</label><progress id="file" value="15" max="66" style="width:80%; height:25px;"></progress> 
+<label for="file">Voortgang fase 1: 16/66 Bijbelboeken</label><progress id="file" value="16" max="66" style="width:80%; height:25px;"></progress> 
 
 ### Fase 2. Verbeteren van de leesbaarheid
   

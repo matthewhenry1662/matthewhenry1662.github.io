@@ -33,7 +33,7 @@
 Met dit hoofdstuk begint de geschiedenis van het veertigste jaar (dat het laatste jaar was) van de omwandelingen van de Israëlieten in de woestijn. En van hun tweede jaar, waarin zij veroordeeld werden tot hun quarantaine in de woestijn, wordt weinig van hen vermeld tot op dit laatste jaar, dat hen tot aan de grenzen van Kanaän bracht. En de geschiedenis van dit jaar is bijna even groot als de geschiedenis van het eerste jaar. 
 Dit hoofdstuk geeft een bericht van: 
 
-I. De dood van Mirjam, vers 1.
+I. De dood van Mirjam, vers 1.  
 II. Het tevoorschijn brengen van water uit de rots. Daarin merken wij op:  
 1\. De nood, waarin Israël verkeerde wegens gebrek aan water, vers 2.  
 2\. Hun ontevredenheid en murmurering in die nood, vers 3 5.  

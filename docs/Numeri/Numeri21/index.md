@@ -34,7 +34,16 @@
 34. De HEERE nu zeide tot Mozes: Vrees hem niet; want Ik heb hem in uw hand gegeven, en al zijn volk, ook zijn land; en gij zult hem doen, gelijk als gij Sihon, de koning der Amorieten, die te Hesbon woonde, gedaan hebt. 
 35. En zij sloegen hem, en zijn zonen, en al zijn volk, alzo dat hem niemand overbleef; en zij namen zijn land in erfelijke bezitting.
 
-## Numeri  21:4-9 
+## Inleiding
+
+## Numeri 21:1-3
+
+!!! note "Missend gedeelte"
+
+    Dit gedeelte mist in veel digitale bronnen van de bijbelverklaring. Dit gedeelte zal later worden toegevoegd.
+
+
+## Numeri 21:4-9 
 
 I. Hier is de vermoeienis van Israël door een lange tocht om het land van Edom, omdat zij geen verlof konden verkrijgen om door de naaste weg te gaan, vers 4. Des volks ziel werd verdrietig op deze weg. De weg was misschien ruw en oneffen, of vuil en modderig, of wellicht verdroot het hun zo’n lange omweg te maken, en dat het hun niet toegelaten werd zich met geweld een weg te banen door het land van de Edomieten. Wie ontevreden van aard is, zal altijd wel iets hebben om over te klagen.
 
