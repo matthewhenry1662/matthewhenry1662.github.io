@@ -25,6 +25,8 @@
 25. Maar van dat hij vijftig jaren oud is, zal hij van de strijd van dezen dienst afgaan, en hij zal niet meer dienen. 
 26. Doch hij zal met zijn broederen dienen in de tent der samenkomst, om de wacht waar te nemen; maar de dienst zal hij niet bedienen. Alzo zult gij aan de Levieten doen in hun wachten. 
 
+## Inleiding
+
 Dit hoofdstuk betreft de lampen van het heiligdom.
 
 I. De BRANDENDE lampen van de kandelaar, met welker verzorging de priesters belast waren, vers 1-4.  
@@ -34,7 +36,7 @@ II. De LEVENDE lampen - als ik hen zo noemen mag - de Levieten, die als dienaren
 3\. Hoe zij Gode werden aangeboden in de plaats van de eerstgeborenen vers 11-18.  
 4\. Hoe zij werden overgegeven aan Aäron en zijn zonen, om hun tot dienaren te zijn, vers 19.  
 5\. Hoe al deze bevelen nauwkeurig werden ten uitvoer gebracht vers 20-22.  
-6\.En tenslotte, wordt de leeftijd bepaald voor hun bediening, vers 23-26.  
+6\. En tenslotte, wordt de leeftijd bepaald voor hun bediening, vers 23-26.  
 
 ## Numeri 8:1-26 
 

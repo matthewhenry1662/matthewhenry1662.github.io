@@ -38,12 +38,12 @@
 ## Inleiding
 
 In dit hoofdstuk hebben wij,   
-I. Orders voor het maken en gebruiken van zilveren trompetten, die de laatste bevelen schijnen te zijn, welke God op de berg Sinai gegeven heeft, orders, die wel tot de minst gewichtige behoren, maar toch niet zonder betekenis zijn, vers 1 - 10.  
-II. De geschiedenis van het vertrek van Israël van de berg Sinaï en hun ordelijke tocht in de woestijn Paran, vers 11 - 25.  
-III. Mozes’ onderhandeling met Hobab, zijn schoonbroeder, vers 26 -  32.  
-IV. Mozes’ gebed bij het optrekken en rusten van de ark, vers 33 - 36.  
+I. Orders voor het maken en gebruiken van zilveren trompetten, die de laatste bevelen schijnen te zijn, welke God op de berg Sinai gegeven heeft, orders, die wel tot de minst gewichtige behoren, maar toch niet zonder betekenis zijn, vers 1-10.  
+II. De geschiedenis van het vertrek van Israël van de berg Sinaï en hun ordelijke tocht in de woestijn Paran, vers 11-25.  
+III. Mozes’ onderhandeling met Hobab, zijn schoonbroeder, vers 26-32.  
+IV. Mozes’ gebed bij het optrekken en rusten van de ark, vers 33-36.  
 
-## Numeri 10:1 - 10 
+## Numeri 10:1-10 
 
 Wij hebben hier aanwijzingen voor de openbare kennisgevingen aan het volk door trompetgeschal bij verschillende gelegenheden. Men zou zo denken, dat Mozes voor zo’n zaak niet door God onderwezen behoefde te worden daar zijn eigen verstand hem wel het gerieflijke van trompetten zou hebben doen inzien, maar hun inrichting moest in alles Goddelijk zijn, en daarom wordt Mozes in deze zaak hoe onbeduidend zij ook schijnt, door God onderricht:
 1\. Ten opzichte van het maken van die trompetten. Zij moeten van zilver gemaakt worden, niet van gegoten zilver, maar van geslagen werk, (zoals sommigen dit lezen) de stof en de vorm waren ongetwijfeld geschikt voor het doel. Thans werd hem bevolen, om slechts twee te maken, omdat er slechts twee priesters waren, om ze te gebruiken. Maar wij lezen dat in Salomo’s tijd "honderd en twintig priesters trompetten met trompetten," 2 Kronieken 5:12. Men veronderstelt dat de vorm van deze trompetten tamelijk gelijk was aan die, welke heden ten dage gebruikt worden.
@@ -59,7 +59,7 @@ c. Ter opwekking en bemoediging van hun heirscharen, als zij ten strijde uittoge
 
 d. Ter viering van hun heilige feesten. Een van hun feesten wordt genoemd "een gedachtenis des geklanks," Leviticus 23:23 en verv. En het schijnt dat zij al hun feesten daarmee moesten opluisteren. Psalm 81:4, en ook hun offeranden, 2 Kronieken 29:27, om aan te duiden met welk een vreugde en zielsgenot zij hun plicht volbrachten jegens God, en om het hart van hen, die de dienst bijwoonden, op te heffen tot een heilige blijdschap in de God, die zij aanbaden. En dan was hetgeen zij verrichtten een gedachtenis voor God, want dan heeft Hij een welbehagen in onze oefeningen van de Godsvrucht, als wij er, zelf behagen in hebben. Heilig werk moet met heilige vreugde gedaan worden.
 
-## Numeri 10:11 - 28 
+## Numeri 10:11-28 
 
 I. Wij hebben hier een algemeen bericht van het vertrek van het leger Israëls van de berg Sinaï, bij welke berg zij nu omstreeks een jaar vertoefd hadden, gedurende welke tijd zeer veel gedenkwaardige zaken aan die plaats verricht zijn. Van dit vertrek schijnt God hun enigen tijd tevoren kennis gegeven te hebben, Deuteronomium 1:6, 7. "Gij zijt lang genoeg bij deze berg gebleven, keert u en vertrekt, en reist ineen naar het land van de belofte." De apostel zegt ons dat "de berg Sinai is tot dienstbaarheid barende," Galaten 4:24, ziende op de wet, die aldaar gegeven is, welke wel nuttig is als een tuchtmeester om ons tot Christus te brengen, maar wij moeten er niet in rusten, maar voorwaarts gaan naar de blijdschap en vrijheid van de kinderen Gods, want onze zaligheid is niet door de wet maar door de belofte. Wij hebben hier te letten op:
 1\. Het gegeven sein, vers 11, de wolk werd verheven, en wij kunnen veronderstellen dat zij enigen tijd bleef staan, totdat zij gereed waren om te vertrekken, en zeer veel werk was er dan om al die tenten af te breken, en al die goederen, welke zij er hadden, in te pakken, daar echter ieder gezin voor zijn eigen zaken zorgde, en allen het terzelfder tijd deden, hebben vele handen er licht werk van gemaakt.
@@ -69,17 +69,17 @@ I. Wij hebben hier een algemeen bericht van het vertrek van het leger Israëls v
 3\. De plaats, waar zij na een driedaagse mars hebben gerust. Zij togen op uit de woestijn Sinai en rustten in de woestijn van Paran. Al ons reizen in deze wereld is slechts van de ene woestijn naar de andere. De veranderingen, die wij denken dat verbeteringen zullen zijn, blijken dit niet altijd te wezen, zolang wij overal waar wij gaan de gewone zwakheden van de menselijke natuur met ons omdragen, moeten wij verwachten waar wij ook gaan, er de gewone rampen van te zullen ontmoeten, nooit moeten wij rusten, nooit ons tehuis gevoelen, voor wij in de hemel komen, en dan zal daar alles wel met ons wezen.
 
 II. Een bijzondere schets van de orde van hun tocht, naar het onlangs voorgeschreven model.
-1\. Juda’s afdeling ging vooraan, vers 14 - 16. De leidende banier, die nu door die stam gevoerd werd, was een onderpand van de scepter, die in Davids tijd er aan gegeven zal worden, en zag nog verder, namelijk op de oversten leidsman van onze zaligheid, van wie voorzegd was, dat "Hem de volkeren gehoorzaam zullen zijn," Genesis 49:10.
+1\. Juda’s afdeling ging vooraan, vers 14-16. De leidende banier, die nu door die stam gevoerd werd, was een onderpand van de scepter, die in Davids tijd er aan gegeven zal worden, en zag nog verder, namelijk op de oversten leidsman van onze zaligheid, van wie voorzegd was, dat "Hem de volkeren gehoorzaam zullen zijn," Genesis 49:10.
 
 2\. Dan komen de twee geslachten van Levieten, die belast waren met het dragen van de tabernakel. Zodra de wolk opgeheven werd werd de tabernakel afgenomen, en ingepakt om vervoerd te worden, vers 17. En hier kwamen de zes wagens, beladen met de zware en grote delen van de tabernakel. Die veelvuldige verplaatsing van de tabernakel op al hun reizen betekende het beweeglijke van die ceremoniëele bedeling. Hetgeen zo dikwijls veranderde, zal ten slotte verdwijnen Hebreeën 8:13.
 
-3\. Vervolgens kwam Rubens afdeling die haar plaats innam na Juda, naar de mond des Heeren, vers 18 - 20.
+3\. Vervolgens kwam Rubens afdeling die haar plaats innam na Juda, naar de mond des Heeren, vers 18-20.
 
 4\. Dan volgden de Kohathieten met hun last, de heilige dingen van de tabernakel, in het midden van het leger, de veiligste en de meest eervolle plaats, vers 21. En de anderen, dat is de Gersonieten en Merarieten, richtten de tabernakel op tegen dat zij kwamen, en misschien is dit hier in zo algemene bewoording uitgedrukt, omdat niet alleen de Levieten maar ook de andere Israëlieten van de eerste afdeling hielpen, als het nodig was, om de oprichting van de tabernakel te bespoedigen, nog eer zij hun eigen tenten oprichtten.
 
-5\. Efraïms afdeling volgde onmiddellijk na de ark, vers 22 - 24, waarop, naar sommigen denken, de psalmist zinspeelt, als hij bidt, Psalm 80:3 :"Wek Uwe macht op voor het aangezicht van Efraïm, en Benjamin, en Manasse," de drie stammen die deze afdeling vormden, (en de ark wordt Zijn sterkte genoemd, Psalm 78:6 En kom tot onze verlossing 6. Dans afdeling kwam het laatst, vers 25 - 27, vormende de achterhoede, samensluitende al de legers, opnemende allen, die achtergebleven waren, niet de vrouwen en kinderen, wij kunnen veronderstellen dat voor deze door de hoofden van de gezinnen in de verschillende stammen gezorgd werd, maar al de onreinen, het vermengde volk, en allen die zwak waren, en achterbleven op hun tocht. Hij, die Jozef als schapen leidde, heeft een teder medelijden met de zwakken, die met de anderen geen gelijke tred kunnen houden, en "van allen, die Hem gegeven zijn, zal er geen verloren gaan," Johannes 17:12. Zie Ezechiel 34:16.
+5\. Efraïms afdeling volgde onmiddellijk na de ark, vers 22-24, waarop, naar sommigen denken, de psalmist zinspeelt, als hij bidt, Psalm 80:3 :"Wek Uwe macht op voor het aangezicht van Efraïm, en Benjamin, en Manasse," de drie stammen die deze afdeling vormden, (en de ark wordt Zijn sterkte genoemd, Psalm 78:6 En kom tot onze verlossing 6. Dans afdeling kwam het laatst, vers 25-27, vormende de achterhoede, samensluitende al de legers, opnemende allen, die achtergebleven waren, niet de vrouwen en kinderen, wij kunnen veronderstellen dat voor deze door de hoofden van de gezinnen in de verschillende stammen gezorgd werd, maar al de onreinen, het vermengde volk, en allen die zwak waren, en achterbleven op hun tocht. Hij, die Jozef als schapen leidde, heeft een teder medelijden met de zwakken, die met de anderen geen gelijke tred kunnen houden, en "van allen, die Hem gegeven zijn, zal er geen verloren gaan," Johannes 17:12. Zie Ezechiel 34:16.
 
-## Numeri  10:29 - 36 
+## Numeri  10:29-36 
 
 I. Wij hebben hier een bericht van hetgeen voorviel tussen Mozes en Hobab, nu het leger Israëls zijn tocht begon naar Kanaän. Sommigen denken dat Hobab dezelfde was als Jethro, Mozes’ schoonvader, en dat het verhaal in Exodus 18 hier behoort plaats te hebben, maar het is meer waarschijnlijk, dat Hobab de zoon was van Jethro, die ook Rehuel genaamd is, Exodus 2:18, en dat, toen de vader, die op jaren was naar zijn eigen land terugkeerde, Exodus 18:27 hij zijn zoon Hobab bij Mozes achterliet, zoals Barzillai Chimham bij David achterliet, en hetzelfde woord betekent zowel schoonvader als schoonbroeder. Nu is deze Hobab wel gaarne bij Israël gebleven, zolang zij bij de berg Sinai, dus dicht bij zijn eigen land, gelegerd waren, maar nu zij voorttrokken, wilde hij naar zijn eigen land en maagschap en naar het huis van zijn vader weerkeren.
 

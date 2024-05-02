@@ -31,7 +31,7 @@
 In dit hoofdstuk hebben wij   
 I. De wet betreffende de Nazireërs.  
 1. waartoe de gelofte van een Nazireër hen verplichtte, vers 1-8.   
-2. Een herstellende wet voor het geval wanneer een Nazireër verontreinigd was door het aanraken van een dood lichaam, vers 9 – 12.  
+2. Een herstellende wet voor het geval wanneer een Nazireër verontreinigd was door het aanraken van een dood lichaam, vers 9-12.  
 3. De plechtigheid om hem te ontslaan van zijn gelofte als zijn tijd om was, vers 13-21. Instructies aan de priesters, hoe zij het volk moesten zegenen, vers 22-27.  
 
 ## Numeri 6:1-21 
