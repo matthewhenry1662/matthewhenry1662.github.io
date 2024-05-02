@@ -35,7 +35,7 @@
 
 ## Inleiding
 
-Hier is: 
+Hier is:  
 I. Een algemene order hieromtrent, vers 1,2.  
 II. Bijzondere aanwijzingen voor het posteren van elk van de stammen in vier onderscheidene afdelingen, drie stammen in elke afdeling.  
 1\. In de voorhoede, naar de oostzijde waren Juda, Issaschar en Zebulon geplaatst, vers 3-9.  
