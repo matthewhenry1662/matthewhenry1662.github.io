@@ -27,7 +27,8 @@
 27. Dan zult gij de HEERE een brandoffer ten liefelijken reuk offeren: twee jonge varren, een ram, zeven eenjarige lammeren; 
 28. En hun spijsoffer van meelbloem, met olie gemengd: drie tienden tot een var, twee tienden tot een ram; 
 29. Tot elk een tiende tot een lam, tot die zeven lammeren toe; 
-30. Een geitenbok, om voor u verzoening te doen. 31 Behalve het gedurig brandoffer, en zijn spijsoffer, zult gij ze bereiden; zij zullen u volkomen zijn met hun drankofferen. 
+30. Een geitenbok, om voor u verzoening te doen. 
+31. Behalve het gedurig brandoffer, en zijn spijsoffer, zult gij ze bereiden; zij zullen u volkomen zijn met hun drankofferen. 
 
 ## Inleiding
 
