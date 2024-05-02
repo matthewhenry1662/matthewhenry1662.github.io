@@ -32,11 +32,9 @@ In dit hoofdstuk hebben wij
 I. De wet betreffende de Nazireërs.  
 1. waartoe de gelofte van een Nazireër hen verplichtte, vers 1-8.   
 2. Een herstellende wet voor het geval wanneer een Nazireër verontreinigd was door het aanraken van een dood lichaam, vers 9 – 12.  
-3. De plechtigheid om hem te ontslaan van zijn gelofte als zijn tijd om was, vers 13-21. Instructies aan de priesters, hoe zij het volk moesten zegenen, vers 22 27.  
+3. De plechtigheid om hem te ontslaan van zijn gelofte als zijn tijd om was, vers 13-21. Instructies aan de priesters, hoe zij het volk moesten zegenen, vers 22-27.  
 
-
-
-# Numeri 6:1-21 
+## Numeri 6:1-21 
 
 Na de wet ter ontdekking en beschaming van hen, die zich door de zonde verachtelijk hadden gemaakt, volgt hier gevoegelijk de wet ter onderrichting en aanmoediging van hen, die zich door grote Godsvrucht achtbaar hebben gemaakt en zich van hun naburen hebben onderscheiden. Het is zeer waarschijnlijk, dat er reeds voordat deze wet was uitgevaardigd personen waren, die als Nazireërs bekend stonden en als zodanig vermaard waren als mensen van grotere nauwgezetheid voor de Godsdienst dan anderen, want van de gelofte van een Nazireër wordt hier gesproken als van een welbekende zaak, maar de verplichting er van wordt hier onder vaster regelen gesteld dan zij tevoren waren. Jozef wordt een "Nazireër" onder zijn broederen genoemd, Genesis 49:26, niet slechts omdat hij afgezonderd van hen was, maar omdat hij boven hen voortreffelijk was. Let op I. De algemene hoedanigheid van een Nazireër: hij is iemand, die de Heere afgezonderd is, vers 2. Sommigen waren levenslang Nazireërs, hetzij door Goddelijke aanwijzing, zoals Simson, Richteren 13:5, en Johannes de Doper, Lukas 1:15, of door de gelofte van hun ouders voor hen, zoals Samuël, 1 Samuel 1:11. Van deze spreekt deze wet niet. Anderen waren het voor een zekere tijd, door hun eigen vrijwillige verbintenis, en betreffende hen worden door deze wet regelen vastgesteld. Een vrouw mocht zich door een gelofte tot het nazireërschap verbinden onder de beperkingen, die wij vinden in Hoofdstuk 30:3, waar met de gelofte, die de vrouw verondersteld wordt de Heere gedaan te hebben, inzonderheid deze bedoeld schijnt te zijn. 
 
