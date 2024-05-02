@@ -34,6 +34,8 @@ In dit hoofdstuk onderricht God Mozes, en deze moet dan Israël onderrichten:
 I. Betreffende de grenzen van het land Kanaän, vers 1-15.  
 II. Betreffende de verdeling en de uitdeling er van aan de stammen Israëls, vers 17-24. Wij hebben hier een beschrijving van de grenzen van het land Kanaän naar alle zijden.   
 
+## Numeri 34:1-15
+
 God onderrichtte Mozes hier om deze grenzen vast te stellen, niet als een aardrijkskundige op een landkaart, om aan de weetgierigheid te voldoen, maar als een vorst voor een schenking opdat met zekerheid geweten zou worden, wat in die schenking begrepen is. Er was hun een veel grotere bezitting beloofd, die hun ook ter bestemder tijd gegeven zou zijn, indien zij gehoorzaam waren geweest, reikende zelfs tot aan de Eufraat, Deuteronomium 11:24. En zover heeft Israëls heerschappij zich ook werkelijk uitgestrekt in de tijd van David en Salomo, 2 Kronieken 9:26. Maar wat hier beschreven wordt, is alleen Kanaän, dat het deel was van de negen en een halve stam, want de andere twee en een halve stam waren reeds gevestigd. vers 14-15. Betreffende deze grenzen nu van Kanaän valt op te merken: 
 
 I. Dat zij binnen zekere bepalingen waren afgeperkt, want God heeft de bepalingen van onze woningen verordend, Handelingen 17:26. Die landpalen waren hun gesteld:
@@ -54,6 +56,7 @@ III. Er was iets opmerkelijks in die grenzen en landpalen.
 5\. Hun westergrens was de grote zee, vers 6, die thans de Middellandse Zee genoemd wordt. Sommigen beschouwen die zee zelf als deel uitmakende van hun bezit, en dat zij krachtens deze schenking de heerschappij er over hadden, zodat zij er de meesters van hadden kunnen zijn, indien zij het niet verbeurd hadden door hun zonde.
 
 ## Numeri 34:16-29 
+
 God benoemt hier commissarissen om het land onder hen te verdelen. De verovering er van wordt als een gedane zaak beschouwd hoewel er tot nu toe nog niets voor gedaan of ondernomen was. Hier hebben wij geen benoeming of aanstelling van generaals en opperbevelhebbers, die de oorlog moesten voeren want zij zullen het land in bezit krijgen, niet door hun zwaard, noch door hun boog, maar door de macht en de gunst van God, en zij moeten zo zeker zijn van de overwinning en van voorspoed, zolang God voor hen streed dat nu reeds de personen benoemd moeten worden, aan wie de verdeling van het land zal worden opgedragen, dat is: die presideren zullen bij de loting, in twistgedingen, die ontstaan kunnen, zullen hebben te beslissen en zullen toezien, dat in alles naar recht en billijkheid gehandeld zal worden.
 
 1\. De voornaamsten van die commissie waren Eleazar en Jozua, vers 17, als typen van Christus, die als priester en koning het hemelse Kanaän onder het geestelijk Israël verdeelt, maar, zoals hier door het lot beslist moet worden, zo erkent Christus dat de beschikking moet zijn naar de wil des Vaders, Mattheüs 20:23, vergel. Efeziers 1:11.

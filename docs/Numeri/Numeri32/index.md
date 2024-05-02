@@ -84,7 +84,7 @@ I. Hun voorstel is billijk en edelmoedig, en van zo’n aard, dat zij, in plaats
 
 2\. Dat zij hun gezin en hun vee, dat slechts een belemmering zou zijn voor het leger, zouden achterlaten, en aldus aan hun broederen van meer dienst zouden zijn, vers 16.
 
-3. Dat zij niet naar hun bezittingen zouden terugkeren, voordat de verovering van Kanaän voltooid was, vers 18. Zij zullen hun broederen met hun beste krachten ten dienste zijn, zolang zij hun hulp nodig hebben.
+3\. Dat zij niet naar hun bezittingen zouden terugkeren, voordat de verovering van Kanaän voltooid was, vers 18. Zij zullen hun broederen met hun beste krachten ten dienste zijn, zolang zij hun hulp nodig hebben.
 
 4\. Dat zij echter generlei deel verwachten van het land, dat nog veroverd moest worden vers 19. "Wij zullen met hen niet erven noch onder voorgeven van hen bij te staan In de strijd een deel van hun land voor ons opeisen, wij zullen tevreden zijn met ons erfdeel aan deze zijde van de Jordaan, en zo zal er dan aan de andere zijde des te meer voor hen zijn." 
 
