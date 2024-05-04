@@ -53,13 +53,14 @@
 
 ## Inleiding
 
-In dit hoofdstuk hebben wij:
+In dit hoofdstuk hebben wij:  
 I. Het lied, dat Mozes op het bevel van God de kinderen Israëls heeft overgeleverd als een inlijvende vermaning aan hen om er zich voor te wachten God te verlaten. Het grootste deel van dit hoofdstuk wordt er door ingenomen. Daarin hebben wij:  
 1\. De inleiding vers 1, 2.  
 2\. De grootheid en goedheid van Gods aard en wezen, en in tegenstelling hiermede het slechte karakter van het volk van Israël, vers 3-6.  
 3\.Een verhaal van de grote dingen, die God voor hen gedaan heeft, en daartegenover een bericht van hun slecht gedrag tegenover Hem, vers 7-18.  
 4\.Een voorzegging van de verwoestende oordelen, die God over hen brengen zal vanwege hun zonden, waarin God gerechtvaardigd wordt door de vele verzwaringen van hun goddeloosheden, vers 19-22.  
-5\.Een belofte van de verdelging van hun vijanden en verdrukkers ten laatste en de heerlijke verlossing van een overblijfsel van Israël, vers 36-43 II. De vermaning, waarmee Mozes hun dit lied overgaf, vers 44-47.  
+5\.Een belofte van de verdelging van hun vijanden en verdrukkers ten laatste en de heerlijke verlossing van een overblijfsel van Israël, vers 36-43.  
+II. De vermaning, waarmee Mozes hun dit lied overgaf, vers 44-47.  
 III. De orders door God aan Mozes gegeven om op de berg Nebo te klimmen en er te sterven, vers 48-52.  
 
 ## Deuteronomium 32:1-6 
@@ -151,7 +152,11 @@ c. Zij waren dezulken, die in het geheel geen goden waren, blote namaaksels, hun
 
 2\. Welk een grote belediging dit was voor JHWH hun God.
 a. Het was met recht verklaard als een vergeten van Hem, vers 18. De rotssteen, die u gegenereerd heeft, hebt gij vergeten. Het acht geven op God zou zonde voorkomen, maar als de wereld wordt gediend en aan het vlees wordt toegegeven, dan wordt God vergeten, en kan er iets meer laag en onwaardig zijn dan God te vergeten, die de oorzaak is van ons bestaan, door wie wij bestaan, en in wie wij leven en ons bewegen? En zie wat hiervan komt, Jesaja 17:10, 11. Omdat gij de God uws heirs hebt vergeten, en niet gedacht aan de Rotssteen uwer sterkte, zullen de ranken van de planten in het eerst wel lieflijk zijn, maar ten laatste zal de oogst maar een hoop van het gemaaide zijn in de dag van de ziekte en van de pijnlijke smart. Men wint er niets bij door God te vergeten.
-b. Het werd met recht ten kwade geduid als een niet te verontschuldigen belediging. Zij hebben Hem tot ijver verwekt en tot toorn, vers 16, want hun afgoden waren Hem gruwelen. Zie hier Gods misnoegen tegen afgoden, hetzij deze opgericht worden in het hart of in het heiligdom. Hij is ijverzuchtig op hen als mededingers met Hem naar de troon in het hart. Hij haat hen als vijanden van Zijn kroon en regering. Hij is, en zal zijn, zeer toornig op hen, die eerbied of genegenheid voor hen hebben. Diegenen bedenken niet wat zij doen, die God tergen want wie kent de sterkte Zijns toorns? Deuteronomium 32:19-25 De methode van dit lied volgt de methode van de voorzeggingen in het vorige hoofdstuk, en daarom volgen na Israëls afval van God, beschreven in de vorige verzen nu onmiddellijk de besluiten van de Goddelijke gerechtigheid hen betreffende. Wij bedriegen ons als wij denken dat God zich aldus door een dwaas en trouweloos volk laat bespotten, dat onstandvastig met Hem is.
+b. Het werd met recht ten kwade geduid als een niet te verontschuldigen belediging. Zij hebben Hem tot ijver verwekt en tot toorn, vers 16, want hun afgoden waren Hem gruwelen. Zie hier Gods misnoegen tegen afgoden, hetzij deze opgericht worden in het hart of in het heiligdom. Hij is ijverzuchtig op hen als mededingers met Hem naar de troon in het hart. Hij haat hen als vijanden van Zijn kroon en regering. Hij is, en zal zijn, zeer toornig op hen, die eerbied of genegenheid voor hen hebben. Diegenen bedenken niet wat zij doen, die God tergen want wie kent de sterkte Zijns toorns? 
+
+## Deuteronomium 32:19-25 
+
+De methode van dit lied volgt de methode van de voorzeggingen in het vorige hoofdstuk, en daarom volgen na Israëls afval van God, beschreven in de vorige verzen nu onmiddellijk de besluiten van de Goddelijke gerechtigheid hen betreffende. Wij bedriegen ons als wij denken dat God zich aldus door een dwaas en trouweloos volk laat bespotten, dat onstandvastig met Hem is.
 
 I. Hij had zich in hen verlustigd, maar nu zal Hij hen met verfoeiing en verachting verwerpen, vers 19. Toen de Heere hun valsheid en dwaasheid zag, en hun lage ondankbaarheid versmaadde Hij hen. De zonde maakt ons hatelijk in de ogen van de heilige God, en geen zondaren zijn zo afzichtelijk voor Hem als degenen, die Hij Zijn zonen en dochteren had genoemd, en die zichzelf zo genoemd hebben, en Hem toch hebben getergd en tot toorn verwekt. Hoe nader iemand is tot God in belijdenis, hoe walglijker zij Hem zijn, als zij zich verontreinigen door hun werken, Psalm 106:39-40.
 
