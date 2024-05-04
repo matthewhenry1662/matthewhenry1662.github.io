@@ -28,7 +28,8 @@ I. Die ten strijde uittogen moesten bemoedigd worden, vers 1-4.
 Zij, wier zaken hun tegenwoordigheid thuis vereisten, meesten ontslagen en teruggezonden worden, vers 5-7, ook zij wier zwakheid en vreesachtigheid hen ongeschikt maakten voor de dienst te velde, vers 8, 9.  
 II. Betreffende de vijanden, tegen wie zij strijd voerden.  
 1\.De onderhandelingen, die zij moeten voeren met de steden die afgelegen zijn, vers 10-15.  
-2\. Hoe zij het volk noesten verdelgen, in welks land zij gingen vers 16-18.3, De zorg, die zij moeten dragen, om bij hun belegering van steden de vruchtbomen niet te verderven, vers 19- 20.  
+2\. Hoe zij het volk noesten verdelgen, in welks land zij gingen vers 16-18.
+3\. De zorg, die zij moeten dragen, om bij hun belegering van steden de vruchtbomen niet te verderven, vers 19-20.  
 
 ## Deuteronomium 20:1-9 
 Israël kon toen eerder als een leger dan als een koninkrijk worden beschouwd, een leger gereed om het land van de vijand binnen te rukken en nog niet gevestigd in een eigen land, en behalve nog de strijd, die zij nu gingen voeren, teneinde een vestiging te verkrijgen, konden zij ook daarna hun eigen grenzen niet verdedigen, of uitbreiden, zonder krijgsgeschrei te horen, daarom was het nodig, dat hun leiding en aanwijzing gegeven zouden worden voor hun militaire aangelegenheden, en in deze verzen wordt hen geleerd hoe hun troepen te besturen, te rangschikken en in slagorde te stellen. En het is opmerkelijk dat de hier voorgeschreven krijgstucht zo weinig hard en streng is, zoals krijgswetten anders gewoonlijk zijn, dat de gehele strekking er van is de krijglieden te bemoedigen en hun dienst licht te maken.

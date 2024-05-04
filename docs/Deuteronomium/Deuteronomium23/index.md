@@ -27,7 +27,7 @@
 ## Inleiding
 
 De wetten in dit hoofdstuk zijn:  
-I. Ter bewaring van de zuiverheid en eer van de geslachten Israëls door er diegenen buiten te sluiten, die er een oneer voor zijn zouden, vers 1-8.
+I. Ter bewaring van de zuiverheid en eer van de geslachten Israëls door er diegenen buiten te sluiten, die er een oneer voor zijn zouden, vers 1-8.  
 II. Ter bewaring van de reinheid en eer van het leger Israëls, als het buitenslands was, vers 9- 14.  
 III. Ter aanmoediging van proselieten, vers 15, 16.  
 IV. Tegen hoererij, vers 17-18.  

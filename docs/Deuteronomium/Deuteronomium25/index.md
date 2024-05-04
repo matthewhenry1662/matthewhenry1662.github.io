@@ -20,7 +20,7 @@
 
 ## Inleiding
 
-Hier is:
+Hier is:  
 I. Een wet om de geseling van kwaaddoeners te matigen, vers 1-3.  
 II. Een wet ten gunste van een dorsenden os, vers 4.  
 III. Ter smading van hem, die weigerde de weduwe van zijn broer te trouwen vers 5-10.  

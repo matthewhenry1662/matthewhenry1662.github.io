@@ -75,7 +75,7 @@ Gesproken hebbende van de grote overvloed, die zij in het land Kanaän zullen vi
 
 I. Hij wijst hen op de plicht, die aan een staat van voorspoed is verbonden, vers 10. Het wordt hen vergund te eten, zelfs tot verzadiging toe, maar niet tot oververzadiging, niet tot overdaad. Maar laat hen altijd hun Weldoener gedenken, de Gever van hun goed, en niet nalaten dankzegging te doen voor hun maaltijd, zo zult gij de Heere uw God loven.
 
-1. Zij moeten er zich voor wachten om zo veel te eten en te drinken, dat zij er door ongeschikt zouden worden voor de plicht om God te loven, veeleer moeten zij er naar streven om God hierin met zoveel te meer blijmoedigheid en verruiming des harten te dienen.
+1\. Zij moeten er zich voor wachten om zo veel te eten en te drinken, dat zij er door ongeschikt zouden worden voor de plicht om God te loven, veeleer moeten zij er naar streven om God hierin met zoveel te meer blijmoedigheid en verruiming des harten te dienen.
 
 2\. Zij moeten geen gemeenschap hebben met hen die, als zij gegeten hebben en verzadigd zijn, valse goden loven, zoals de Israëlieten zelf gedaan hebben bij hun aanbidding van het gouden kalf, Exodus 32:6.
 

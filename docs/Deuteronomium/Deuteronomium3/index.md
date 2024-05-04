@@ -30,7 +30,7 @@
 
 ## Inleiding
 
-In dit hoofdstuk verhaalt Mozes 
+In dit hoofdstuk verhaalt Mozes:  
 I. De overwinning op Og, koning van Bazan, en hoe Israël zich meester heeft gemaakt van zijn land, vers 1-11.  
 II. De verdeling van het veroverde land onder de twee en een halve stam, vers 12-17. Onder zekere voorwaarden en bepalingen, vers 18-20.  
 III. De aanmoediging aan Jozua om de oorlog voort te zetten, die zo glorierijk was begonnen, vers 21, 22.  
