@@ -35,7 +35,7 @@ V. Met dezen vergelijkt de apostel de verleiders, tegen welken hij hen waarschuw
 VI. Daarna haalt hij, als zeer geschikt voor zijn doel, een aloude profetie aan van Henoch, die het naderend oordeel voorspelde en beschreef, vers 14-15.  
 VII. Hij weidt uit over het karakter der verleiders, en waarschuwt tegen de ergernis, die sommige oprechte zielen konden nemen aan het zo spoedig toestaan van zulke dingen, door aan te tonen dat dit voorzegd is en zo moet zijn, vers 16-19.  
 VIII. Hij wekt op tot volharding in het geloof, vurigheid in het gebed, waakzaamheid tegen afval van de liefde Gods, en een levende hoop op het eeuwige leven, vers 20, 21.  
-IX. Wijst aan hoe te handelen tegen de dwalenden en de ergerlijken, vers 22, 23. 
+IX. Wijst aan hoe te handelen tegen de dwalenden en de ergerlijken, vers 22, 23.  
 X. Besluit met een merkwaardige lofverheffing, vers 24, 25.  
 
 ## Judas 1:1-2 
