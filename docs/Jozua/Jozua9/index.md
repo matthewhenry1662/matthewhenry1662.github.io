@@ -31,7 +31,7 @@
 In dit hoofdstuk wordt vermeld:  
 I. Het onverstandige bondgenootschap van Kanaän tegen Israël, vers 1, 2.   
 II. Het verstandige bondgenootschap van de inwoners van Gibeon met Israël.  
-1\. Hoe het listig voorgesteld en er om verzocht werd door de Gibeonieten, die voorwendden van een ver land te zijn gekomen, vers 3 13.  
+1\. Hoe het listig voorgesteld en er om verzocht werd door de Gibeonieten, die voorwendden van een ver land te zijn gekomen, vers 3-13.  
 2\. Hoe er onbedachtzaam in werd toegestemd door Jozua en de Israëlieten, tot ergernis van de vergadering toen het bedrog ontdekt was, vers 14-18.  
 3\. Hoe de zaak geschikt werd tot voldoening van beide kanten door aan deze Gibeonieten het leven te schenken, omdat zij een verbond met hen waren aangegaan, maar hun toch hun vrijheid ontnemende, omdat het verbond door bedrog was gesloten, vers 19-27.   
 
