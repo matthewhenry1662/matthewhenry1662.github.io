@@ -19,7 +19,7 @@ function loadEvents() {
 
 
 function changeSize(size) {
-    cont.style.fontSize = `${size}rem`;
+    cont.style.fontSize = `.${size}rem`;
 }
 
 
