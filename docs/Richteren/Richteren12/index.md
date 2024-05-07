@@ -16,7 +16,7 @@
 
 ## Inleiding
 
-In dit hoofdstuk hebben wij:
+In dit hoofdstuk hebben wij:  
 I. Jeftha’s botsing met de Efraïmieten, en het bloedvergieten, dat bij deze ongelukkige gelegenheid heeft plaats gehad vers 1-6, en het einde van Jeftha’s leven en regering, vers 7.  
 II.	Een kort bericht omtrent nog drie van Israëls richters: Ebzan, vers 8-10, Elon, vers 11, 12, en Abdon, vers 13-15.  
 

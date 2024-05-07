@@ -16,13 +16,13 @@
 
 Allen stemmen overeen in de mening, dat hetgeen in dit en de overige hoofdstukken tot aan het einde van het boek voorkomt, niet geschied is zoals het verhaal er van voorkomt, na Simson, maar lang tevoren, en wel spoedig na de dood van Jozua, in de dagen van Pinehas, de zoon van Eleazar, Hoofdstuk 20:28. Maar het wordt hier aan het einde van het boek gesteld, om in de geschiedenis van de Richteren niet te onderbreken. Om te doen blijken hoe gelukkig Israël was in de richters, wordt hier aangetoond, hoe ongelukkig zij waren, als er geen was. 
 
-I. De afgoderij is begonnen in het gezin van Micha, Hoofdstuk 17.
-II. Vandaar verspreidde zij zich in de stam van Dan Hoofdstuk 18. 
-III. Toen werd schurkerij gepleegd in Gibea Benjamins, Hoofdstuk 19. 
-IV. Hierop werd bijna de gehele stam verwoest wegens hun ondersteuning er van, Hoofdstuk 20. 
+I. De afgoderij is begonnen in het gezin van Micha, Hoofdstuk 17.  
+II. Vandaar verspreidde zij zich in de stam van Dan Hoofdstuk 18.   
+III. Toen werd schurkerij gepleegd in Gibea Benjamins, Hoofdstuk 19.   
+IV. Hierop werd bijna de gehele stam verwoest wegens hun ondersteuning er van, Hoofdstuk 20.  
 V. Er werden vreemde hulpmiddelen aangewend om die stam in wezen te houden, Hoofdstuk 21. Geloofd zij daarom God, voor de regering, waaronder wij leven! 
 
-In dit hoofdstuk wordt ons gezegd, hoe Micha, een Efraïmiet, zich voorzag: 
+In dit hoofdstuk wordt ons gezegd, hoe Micha, een Efraïmiet, zich voorzag:  
 I.	Van een beeld, om hem tot god te zijn vers 1-6.  
 II.	Van een Leviet-zoals die dan was om hem ten priester te zijn, vers 7-13.  
 
