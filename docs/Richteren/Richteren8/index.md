@@ -31,7 +31,8 @@
 31. En zijn bijwijf, hetwelk te Sichem was, baarde hem ook een zoon; en hij noemde zijn naam Abimelech. 
 32. En Gideon, de zoon van Joas, stierf in goeden ouderdom; en hij werd begraven in het graf van zijn vader Joas, te Ofra, des Abi-ezriets. 
 33. En het geschiedde, als Gideon gestorven was, dat de kinderen Israëls zich omkeerden, en de Baäls nahoereerden; en zij stelden zich Baäl-berith tot een God. 
-34. En de kinderen Israëls dachten niet aan de HEERE, hun God, Die hen gered had van de hand van al hun vijanden van rondom. 35 En zij deden geen weldadigheid bij het huis van Jerubbaäl, dat is Gideon, naar al het goede, dat hij bij Israël gedaan had. 
+34. En de kinderen Israëls dachten niet aan de HEERE, hun God, Die hen gered had van de hand van al hun vijanden van rondom. 
+35. En zij deden geen weldadigheid bij het huis van Jerubbaäl, dat is Gideon, naar al het goede, dat hij bij Israël gedaan had. 
 
 ## Inleiding
 
