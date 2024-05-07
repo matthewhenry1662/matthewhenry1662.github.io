@@ -14,7 +14,7 @@ In dit hoofdstuk wordt ons gezegd, hoe Micha, een Efraïmiet, zich voorzag:
 I.	Van een beeld, om hem tot god te zijn vers 1-6. 
 II.	Van een Leviet-zoals die dan was om hem ten priester te zijn, vers 7-13. 
 
-RICHTEREN 17:1-6 
+Richteren 17:1-6 
 I. Hier hebben wij Micha en zijn moeder in twist met elkaar. 
 
 1. De zoon besteelt zijn moeder. De oude vrouw had door langdurig sparen en schrapen een grote som geld opgegaard: elf honderd zilverlingen. Waarschijnlijk was het haar bedoeling om bij haar dood dat geld aan haar zoon na te laten, maar intussen deed het haar genoegen die zilverstukken te zien en te tellen. De jonge man had een gezin van volwassen kinderen, want een van zijn zonen was al van de leeftijd om priester te zijn, vers 5. Hij weet waar het geld van zijn moeder is, denkt dat hij het meer nodig heeft dan zij, kan niet wachten tot zij sterft, maar neemt het heimelijk weg om het voor zijn eigen gebruik aan te wenden. Hoewel het verkeerd is in ouders om hun kinderen te onthouden wat betamelijk is, en hen aldus in verzoeking te brengen om te wensen hen in hun graf te zien, zal zelfs dit toch volstrekt de slechtheid niet verontschuldigen van die kinderen, welke hun ouders bestelen, en denken dat alles het hun is wat zij van hen kunnen verkrijgen, al is het ook door nog zo verkeerde middelen. 
@@ -40,7 +40,7 @@ b. Zijn inzettingen. Een kamer, of een reeks van vertrekken in het huis van Mich
 
 B. Wat de oorzaak was van dit bederf vers 6. Er was geen koning in Israël, geen richter of souvereine vorst, om kennis te nemen van het oprichten van deze beelden (naar welke ongetwijfeld de inwoners van het omliggende land weldra heenstroomden) en orders te geven om ze te vernielen. Er was niemand om Micha zijn dwaling te doen inzien, hem te weerhouden van het kwaad en hem te straffen, niemand om dit kwaad intijds te fnuiken, en er aldus de verspreiding van te voorkomen. Ieder deed wat recht was in zijn ogen, en toen deden zij spoedig wat kwaad was in de ogen des Heeren. Toen zij zonder koning waren, om goede orde onder hen te bewaren, was Gods huis verlaten, werden Zijn priesters veronachtzaamd, en ging alles verkeerd en ten verderve onder hen. Zie hoe groot een zegen een goede regering is, welke redenen er zijn, dat er niet alleen "smekingen, gebeden en voorbiddingen, maar ook dankzeggingen gedaan worden voor koningen en allen, die in hoogheid zijn," 1 Timotheüs 2:1, 2. Niets draagt, onder God, meer bij tot steun en bevordering van de Godsdienst in de wereld, dan de behoorlijke bedeling van deze twee grote instellingen: de overheid, of magistratuur, en de bediening van het Evangelie. 
 
-RICHTEREN 17:7-13 
+Richteren 17:7-13 
 Wij hebben hier het bericht dat Micha zich van een Leviet voorzag om zijn kapelaan te zijn, hetzij omdat hij dacht, dat zijn zoon, die de erfgenaam was van zijn bezittingen te voornaam was voor deze dienst, of liever dat hij, omdat hij niet van Gods stam was, er niet waardig genoeg voor was. 
 Merk op:
 
