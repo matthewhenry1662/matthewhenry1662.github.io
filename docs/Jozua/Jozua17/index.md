@@ -22,7 +22,7 @@
 Vervolgens zal voor de halve stam van Manasse voorzien worden, en hier hebben wij:
 
 I. De geslachten van die stam waaraan een erfdeel wordt gegeven, vers 1-6.  
-II Het land, dat hun ten deel viel, vers 7-13.  
+II. Het land, dat hun ten deel viel, vers 7-13.  
 III. Het gezamenlijk verzoek van de twee stammen uit Jozef voortgekomen, om vergroting van hun erfdeel, en Jozua’s antwoord hierop, vers 14-18.  
 
 ## Jozua 17:1-6 
