@@ -34,7 +34,7 @@
 
 ## Inleiding
 
-Dit hoofdstuk besluit het leven en de regering van Jozua, waarin wij hebben:
+Dit hoofdstuk besluit het leven en de regering van Jozua, waarin wij hebben:  
 I. Zijn grote zorg en moeite om het volk van Israël te bevestigen in het ware geloof en de aanbidding Gods, opdat zij ook na zijn dood daarin zullen volharden. Te dien einde riep hij wederom een algemene vergadering bijeen van de hoofden van de vergadering Israëls, vers 1, en handelde met hen,  
 1\. Bij wijze van verhaal, hun nog eens omstandig verhalende de grote dingen, die God voor hen en hun vaderen gedaan had, vers 2-13.  
 2\. Bij wijze van een last aan hen, om in overweging hiervan, God te dienen, vers 14.  
@@ -81,7 +81,7 @@ Nooit was een onderhandeling met meer beleid en wijsheid gevoerd en tot een bete
 
 I. Zal het hen onder een verplichting brengen, als zij de dienst van God tot hun eigen keus maken? Zo stelt hij hen hier dan voor deze keus. Niet alsof het tevoren een onverschillige zaak was, of zij al of niet God dienden, of alsof zij de vrijheid hadden om Zijn dienst te weigeren, maar omdat het een groten invloed zou hebben op hun volharden in de Godsdienst, als zij hem omhelsden met het verstand van mannen, en met de vastberadenheid van mannen. Hij brengt hen hier tot deze twee dingen:
 
-1. Hij brengt hen er toe om hun Godsdienst met verstand te omhelzen, want het is een redelijke Godsdienst. De wil des mensen is geneigd om te roemen in zijn natuurlijke vrijheid en, uit ijver voor de eer daarvan blijft hij met het meeste genoegen bij hetgeen zijn eigen keus is, daarom is het Gods wil dat deze dienst ons niet door toeval of dwang opgelegd wordt, maar dat hij onze eigen vrije keus is. En zo: 
+1\. Hij brengt hen er toe om hun Godsdienst met verstand te omhelzen, want het is een redelijke Godsdienst. De wil des mensen is geneigd om te roemen in zijn natuurlijke vrijheid en, uit ijver voor de eer daarvan blijft hij met het meeste genoegen bij hetgeen zijn eigen keus is, daarom is het Gods wil dat deze dienst ons niet door toeval of dwang opgelegd wordt, maar dat hij onze eigen vrije keus is. En zo: 
 
 A. Stelt Jozua hun dan die keus voor, vers 15, en: 
 a. Wijst de kandidaten aan voor deze verkiezing. De Heere, JHWH, aan de een zijde, en aan de andere zijde, hetzij de goden van hun voorouders, welke zich hun zouden aanbevelen, die liefde hadden voor de oudheid en hetgeen zij door overlevering van hun vaderen hadden ontvangen, of de goden van hun naburen, de Amorieten, in wier land zij woonden, die aantrekkelijk zouden zijn voor hen, die inschikkelijk waren en graag op goede voet zouden willen zijn met hun naburen. 

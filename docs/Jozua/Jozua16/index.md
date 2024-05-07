@@ -14,7 +14,7 @@
 Het is jammer dat dit en het volgende hoofdstuk gescheiden zijn, want beide geven ons het lot van de kinderen van Jozef, Efraïm en Manasse, die na Juda de plaats van de ere zullen hebben, en dus niet eerste en beste deel verkregen in het noordelijk deel van Kanaän, zoals Juda het nu in het zuidelijk deel had. 
 In dit hoofdstuk hebben wij:
 
-I. Een algemeen bericht van het lot, dat deze twee stammen tezamen hadden vers 1-4. 
+I. Een algemeen bericht van het lot, dat deze twee stammen tezamen hadden vers 1-4.  
 II. De grenzen van het lot van Efraïm in het bijzonder, vers 5-10. Dat van Manasse komt in het volgende hoofdstuk. 
 
 ## Jozua 16:1-4 
