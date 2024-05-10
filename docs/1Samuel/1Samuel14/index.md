@@ -57,9 +57,9 @@ Aan het einde van het vorige hoofdstuk verlieten wij het leger Israëls in zeer 
 
 I. Het leger van de Filistijnen overwonnen en vertreden door het geloof en de moed van Jonathan, die zonder weten van zijn vader, vers 1-3, alleen vergezeld door zijn wapendrager, een kloekmoedige aanval op hen deed, zich versterkende in de Heere zijn God, vers 4-7. Hij daagde hen uit, vers 8-12, en op hun aanneming van de uitdaging, heeft hij hen met zo’n woede, of liever met zo’n geloof aangevallen dat hij hen op vlucht joeg, en hen tegen elkaar aanzette, vers 13-15, wat aan Saul en zijn krijgsmacht en andere Israëlieten de gelegenheid gaf om de slag op te volgen en een overwinning te behalen, vers 11-23.  
 II. Het leger Israëls ontroerd en verlegen door de roekeloosheid en dwaasheid van Saul, die het volk bezwoer geen voedsel te nuttigen vóór de avond, wat:  
-1. Jonathan aan strafvervolging blootstelde vers 25-30.  
-2. Het volk in verzoeking bracht, om toen die vastentijd voorbij was, vlees te eten met het bloed, vers 31-35.  
-3. Jonathans fout in onwetendheid begaan, zou hem het leven gekost hebben, maar het volk redde hem, vers 36-46.  
+1\. Jonathan aan strafvervolging blootstelde vers 25-30.  
+2\. Het volk in verzoeking bracht, om toen die vastentijd voorbij was, vlees te eten met het bloed, vers 31-35.  
+3\. Jonathans fout in onwetendheid begaan, zou hem het leven gekost hebben, maar het volk redde hem, vers 36-46.  
 III. In het einde hebben wij een algemeen bericht van Sauls krijgsdaden, vers 47, 48, en van zijn familie, vers 44-52. 
 
 ## 1 Samuël 14:1-15
