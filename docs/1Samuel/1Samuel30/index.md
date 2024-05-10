@@ -37,7 +37,7 @@ Toen David uit het leger van de Filistijnen weggezonden was, is hij niet overgeg
 I. In welke treurige toestand hij de stad vond, alles was verwoest door de Amalekieten, en de grote droefenis, die hierdoor aan hem en zijn mannen werd veroorzaakt, vers 1-6.  
 II. Welke maatregelen hij nam om het verlorene te herwinnen. Hij vroeg God, ontving een opdracht van Hem, vers 7, 8.  
 III. joeg de vijand na, vers 9, 10.  
-IV. ontving bericht door een zwerveling vers 11 – 15.  
+IV. ontving bericht door een zwerveling vers 11-15.  
 V. en viel de plunderaars aan, versloeg hen en hernam alles wat zij hadden weggevoerd, vers 18-20.  
 VI. Welke methode hij volgde voor het verdelen van de buit vers 21-31.  
 

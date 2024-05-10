@@ -26,7 +26,6 @@
 26. En Saul ging aan deze zijde des bergs, en David en zijn mannen aan gene zijde des bergs. Het geschiedde nu, dat zich David haastte, om te ontgaan van het aangezicht van Saul; en Saul en zijn mannen omsingelden David en zijn mannen, om die te grijpen. 
 27. Doch daar kwam een bode tot Saul, zeggende: Haast u, en kom, want de Filistijnen zijn in het land gevallen. 
 28. Toen keerde zich Saul van David na te jagen, en hij toog de Filistijnen tegemoet; daarom noemde men die plaats Selamachlekoth. 
-29. En David toog van daar op, en hij bleef in de vestingen van En-gedi. 
 
 ## Inleiding
 

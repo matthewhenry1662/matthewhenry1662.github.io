@@ -1,6 +1,6 @@
 1. Toen nam Samuël een oliekruik, en goot ze uit op zijn hoofd, en kuste hem, en zeide: Is het niet alzo, dat de HEERE u tot een voorganger over Zijn erfdeel gezalfd heeft? 
 2. Als gij heden van mij gaat, zo zult gij twee mannen vinden bij het graf van Rachel, aan de landpale van Benjamin, te Zelzah; die zullen tot u zeggen: De ezelinnen zijn gevonden, die gij zijt gaan zoeken, en zie, uw vader heeft de zaken der ezelinnen verlaten, en hij is bekommerd voor ulieden, zeggende: Wat zal ik om mijn zoon doen? 
-3. Als gij u van daar en verder aan begeeft, en zult komen tot aan Elon - thabor, daar zullen u drie mannen vinden, opgaande tot God naar Beth - el; een, dragende drie bokjes, en een, dragende drie bollen broods, en een, dragende een fles wijn. 
+3. Als gij u van daar en verder aan begeeft, en zult komen tot aan Elon-thabor, daar zullen u drie mannen vinden, opgaande tot God naar Beth-el; een, dragende drie bokjes, en een, dragende drie bollen broods, en een, dragende een fles wijn. 
 4. En zij zullen u naar uw welstand vragen, en zij zullen u twee broden geven; die zult gij van hun hand nemen. 
 5. Daarna zult gij komen op de heuvel Gods, waar der Filistijnen bezettingen zijn; en het zal geschieden, als gij aldaar in de stad komt, zo zult gij ontmoeten een hoop profeten, van de hoogte afkomende, en voor hun aangezichten luiten, en trommelen, en pijpen, en harpen, en zij zullen profeteren. 
 6. En de Geest des HEEREN zal vaardig worden over u, en gij zult met hen profeteren; en gij zult in een anderen man veranderd worden. 
@@ -30,14 +30,14 @@
 
 Wij verlieten Samuël en Saul tezamen wandelende waarschijnlijk op een niet publieke weg, die van Rama over het veld ging, misschien in de paden van de wijngaarden, terwijl Saul verwachtte van Samuël het woord Gods te horen. Nu hebben wij hier: 
 
-I. De zalving van Saul, die toen en daar ter plaatse geschiedde, vers 1. De tekenen en de instructies, die Samuël hem gaf, vers 2 - 6, 7, 8.  
-II. De vervulling dier tekenen tot voldoening van Saul, vers 9 - 13.  
-III. Zijn terugkeer naar het huis zijns vaders, vers 14 - 16.  
-IV. Zijn openbare verkiezing door het lot en zijn plechtige inhuldiging, vers 17 - 25.  
+I. De zalving van Saul, die toen en daar ter plaatse geschiedde, vers 1. De tekenen en de instructies, die Samuël hem gaf, vers 2-6, 7, 8.  
+II. De vervulling dier tekenen tot voldoening van Saul, vers 9-13.  
+III. Zijn terugkeer naar het huis zijns vaders, vers 14-16.  
+IV. Zijn openbare verkiezing door het lot en zijn plechtige inhuldiging, vers 17-25.  
 V. Zijn tweede terugkeer naar zijn eigen stad, vers 26, 27.  
 Het is een groot werk, dat hier geschiedt, het aanstellen niet alleen van een monarch, maar de instelling van de monarchie zelf in Israël, en daarom wordt in de voortgang er van veel van God gezien.
 
-## 1 Samuël 10:1 - 8 
+## 1 Samuël 10:1-8 
 
 Samuël oefent hier het ambt uit van profeet aan Saul van Godswege de volle verzekering gevende, dat hij koning zal zijn, gelijk hij dit dan ook later overeenkomstig deze voorzegging geweest is. 
 
@@ -69,7 +69,7 @@ III. Hij zegt hem in de administratie van zijn regering te handelen naar Gods vo
 
 1\. In gewone gevallen moet hij de leiding volgen van Gods voorzienigheid, vers 7. Doe wat uw hand zal vinden. Neem zulke maatregelen als uw eigen verstand u aan de hand zal doen." Maar, 2. In een buitengewone verlegenheid, waarin hij zich later te Gilgal zal bevinden, wanneer het voor hem het gewichtigste, meest beslissende ogenblik zal zijn, moet hij wachten totdat Samuël tot hem zal komen, hem zeven dagen verbeiden, vers 8. Hoe zijn tekortkomen hierin zijn val bleek te zijn, zullen wij later zien Hoofdstuk 13:11. Hem werd duidelijk hiermede te kennen gegeven, dat hij verantwoordelijk werd gesteld voor zijn gedrag, dus nauwkeurig op zich had te letten, en dat hij, hoewel hij koning was, onder de leiding van Samuël moest handelen, moest doen wat deze hem zou bevelen. De grootste en aanzienlijkste mannen moeten onderworpen zijn aan God en Zijn woord.
 
-## 1 Samuël 10:9 - 16 
+## 1 Samuël 10:9-16 
 
 Saul had nu afscheid genomen van Samuël, zeer verbaasd, naar wij wèl kunnen onderstellen, over hetgeen hem geschied was, en schier bereid om te vragen of hij waakte of droomde. Nu wordt ons hier gezegd: 
 
