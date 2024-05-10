@@ -1,7 +1,7 @@
 1. Toen toog Nahas, de Ammoniet, op, en belegerde, Jabes in Gilead. En al de mannen van Jabes zeiden tot Nahas: Maak een verbond met ons, zo zullen wij u dienen. 
 2. Doch Nahas, de Ammoniet, zeide tot hen: Mits dezen zal ik een verbond met ulieden maken, dat ik u allen het rechteroog uitsteke; en dat ik deze schande op gans Israël legge. 
 3. Toen zeiden tot hem de oudsten Jabes: Laat zeven dagen van ons af, dat wij boden zenden in al de landpalen van Israël; is er dan niemand, die ons verlost, zo zullen wij tot u uitgaan. 
-4. Als de boden te Gibea - sauls kwamen, zo spraken zij deze woorden voor de oren van het volk. Toen hief al het volk zijn stem op, en weende. 
+4. Als de boden te Gibea-sauls kwamen, zo spraken zij deze woorden voor de oren van het volk. Toen hief al het volk zijn stem op, en weende. 
 5. En ziet, Saul kwam achter de runderen uit het veld, en Saul zeide: Wat is de volke, dat zij wenen? Toen vertelden zij hem de woorden der mannen van Jabes. 
 6. Toen werd de Geest Gods vaardig over Saul, als hij deze woorden hoorde; en zijn toorn ontstak zeer. 
 7. En hij nam een paar runderen, en hieuw ze in stukken, en hij zond ze in alle landpalen van Israël door de hand der boden, zeggende: Die niet zelf uittrekt achter Saul en achter Samuël, alzo zal men zijn runderen doen. Toen viel de vreze des HEEREN op het volk, en zij gingen uit als een enig man. 
@@ -18,13 +18,13 @@
 
 In dit hoofdstuk hebben wij de eerste vruchten van Sauls regering in de glorierijke verlossing van Jabes in Gilead uit de handen van de Ammonieten. Laat Israël hier nu niet uit afleiden, dat zij wel gedaan hebben met een koning te vragen, God zou hen hebben kunnen en willen verlossen zonder een koning, maar laat hen Gods goedheid bewonderen, dat Hij hen niet heeft verworpen, toen zij Hem verwierpen, en Zijn wijsheid erkennen in de keuze van de persoon, die Hij zo Hij hem niet geschikt vond, geschikt heeft gemaakt voor het grote ambt, waartoe hij was geroepen terwijl Hij hem instaat stelde, om enigermate door zijn openbare diensten de kroon te verdienen, voordat zij nog op zijn hoofd bevestigd is door de openbare goedkeuring. Hier is: 
 
-I. De grote nood en benauwdheid waarin de stad Jabes in Gilead, aan de andere kant van de Jordaan, gebracht werd door de Ammonieten, vers 1 - 3.  
+I. De grote nood en benauwdheid waarin de stad Jabes in Gilead, aan de andere kant van de Jordaan, gebracht werd door de Ammonieten, vers 1-3.  
 II. Sauls grote bereidwilligheid om haar te hulp te komen, waarbij hij zich heeft onderscheiden, vers 4 – 10.  
 III. De goede uitslag van zijn poging, door welke God hem heeft onderscheiden vers 11.  
 IV. Sauls zachtmoedigheid in weerwil hiervan Jegens hen, die hem hadden tegengestaan, vers 12,13.  
 V. De openbare bevestiging en erkenning van zijn verkiezing tot de regering, vers 14, 15.  
 
-## 1 Samuël 11:1 - 4 
+## 1 Samuël 11:1-4 
 
 De Ammonieten waren slechte naburen voor die stammen Israëls, die in hun nabijheid lagen, hoewel zij nakomelingen waren van de rechtvaardigen Lot, en daarom door Israël met onderscheiding werden behandeld. Zie Deuteronomium 2:19. Jeftha had hen in zijn tijd vernederd en ten onder gebracht, maar nu had de zonde van Israël hen instaat gesteld hun weer het hoofd te bieden, en die twist te wreken. De stad in Gilead was enige eeuwen geleden verwoest door het zwaard van Israëls gerechtigheid wegens haar niet optreden tegen de goddeloosheid van Gibea, Richteren 21:10,  en nu, weer bevolkt zijnde waarschijnlijk door de nakomelingen van hen, die toen aan het zwaard ontkomen waren, is zij alsof er een noodlot over de plaats hing - in gevaar van verwoest te worden door de Ammonieten. Nahas, koning van de kinderen Ammons, I Kronieken 19:1, sloeg er het beleg voor.
 
@@ -39,7 +39,7 @@ c. Zij moeten schande leggen op geheel Israël, als zwak en lafhartig, daar zij 
 
 4\. Hiervan wordt bericht gezonden naar Gibea. Zij zeiden dat zij boden wilden zenden in al de landpalen van Israël, vers 3, hetgeen Nahas des te meer gerust deed zijn, want dat, dacht hij, zou een werk van tijd wezen, en niemand zou genegen zijn om te verschijnen indien zij niet een algemeen opperhoofd hadden. Nahas had wellicht nog niet gehoord, dat zij zich juist een koning hadden verkoren. Maar de boden zijn, hetzij uit eigen beweging of op bevel van hun meesters, regelrecht naar Gibea gegaan en, Saul niet tehuis vindende hebben zij hun bericht aan het volk meegedeeld, dat daarop in wenen uitbarstte, vers 4. Zij wilden eerder de ellende hunner broederen bewenen, dan er aan te denken hun te hulp te snellen, hun tranen voor hen storten dan hun bloed. Zij weenden, als wanhopende om de mannen van Jabes in Gilead te hulp te komen, en vrezende dat, zo die grensstad verloren was, de vijand tot in het hart huns lands zou doordringen, hetwelk nu in zeer groot gevaar scheen te zijn.
 
-## 1 Samuël 11:5 - 11
+## 1 Samuël 11:5-11
 
 Wat hier verhaald wordt is zeer ter ere van Saul en toont de gelukkige uitwerking van die anderen geest, met welke hij begiftigd was. Merk op: 
 
@@ -72,7 +72,7 @@ Wij kunnen onderstellen dat Saul zoveel krachtiger in deze zaak is opgetreden:
 
 2\. Omdat het de inval was van de Ammonieten, die het volk er toe bracht om een koning te begeren, (dit zegt Samuël, Hoofdstuk 12:12,), zodat hij, indien hij zich in deze expeditie niet goed gekweten had, hen teleurgesteld zou hebben in hun verwachting van hem, en voor altijd hun achting verloren zou hebben.
 
-## 1 Samuël 11:12 - 15 
+## 1 Samuël 11:12-15 
 
 Wij hebben hier het gebruik, dat gemaakt werd van de glorierijke overwinning, die Saul had behaald, niet het gebruik, dat er van gemaakt werd naar buiten, (hoewel wij het als een uitgemaakte zaak kunnen beschouwen, dat de mannen van Jabes in Gilead, die er zo ternauwernood aan ontkomen waren, dat hun het rechteroog werd uitgestoken, nu met dat behouden oog de gelegenheid zouden ontdekken, die zij nu hadden om wraak te nemen op hun wrede vijanden, en hun voor altijd de macht te benemen om hen nogmaals aldus in het nauw te brengen. Nu zullen zij wraak nemen op de Ammonieten voor hun rechterogen, veroordeeld om uitgestoken te worden, zoals Simson op de Filistijnen, voor zijn twee ogen, die uitgegraven waren, Richteren 16:28). Maar het bericht, hier gegeven, is van het gebruik, dat zij er tehuis, dat is: in hun eigen land, van gemaakt hebben. 
 

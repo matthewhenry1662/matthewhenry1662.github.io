@@ -45,7 +45,7 @@ IV. Zijn verhoor voor Samuël, en het vonnis over hem geveld niettegenstaande de
 V. De terdoodbrenging van Agag, vers 32, 33.   
 VI. Samuëls laatst vaarwel aan Saul, vers 34, 35.  
 
-## 1 Samuël 15:1-3 
+## 1 Samuël 15:1-9
 
 I. Hier zien wij, dat Samuël in de naam van God Saul plechtig opeist om aan het gebod Gods te gehoorzamen, en duidelijk geeft hij hem te kennen, dat hij in een bijzondere zaak op de proef wordt gesteld, of hij al of niet gehoorzaam zou zijn, vers 1. En dat dit zo uitdrukkelijk tot een proeve wordt gesteld van zijn gehoorzaamheid, heeft zijn ongehoorzaamheid zeer verzwaard.
 
@@ -111,7 +111,7 @@ f. Daar Saul bij zijn verdediging blijft wordt zij door Samuël uitvoerig en vol
 
 Eindelijk. Hij kondigt hem in korte woorden zijn oordeel aan: Omdat gij des Heeren woord verworpen hebt - het veracht hebt, zo leest het de Chaldeeër, het als niets geacht hebt, aldus de LXX, er de heerschappij van verworpen hebt, zo heeft Hij u verworpen, u veracht, u als niets geacht, maar u verworpen, dat gij geen koning zult zijn. Hij, die u koning gemaakt heeft, heeft besloten u van het koningschap te ontzetten." Diegenen zijn ongeschikt en onwaardig om over mensen te regeren, die niet willen dat God over hen zal regeren.
 
-## 1 Samuël 15:24-31 
+## 1 Samuël 15:24-35
 
 Saul is er ten laatste toe gebracht het boetekleed aan te doen, maar het is al te blijkbaar dat hij de rol speelt van een boeteling, maar het niet werkelijk is. Merk op: 
 
