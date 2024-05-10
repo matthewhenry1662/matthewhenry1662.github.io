@@ -90,7 +90,7 @@ a. Van zijn nederigheid. Menigeen zou z60 in vervoering geweest zijn over deze p
 b. Van zijn wijsheid. Ware hij ijverig geweest om het bekend te maken, hij zou benijd zijn geworden, en wie weet welke moeilijkheden hem dit zou hebben berokkend. Samuël had het hem als een geheim meegedeeld en hij wist een geheim te bewaren. Aldus bleek het dat hij een ander hart had, een hart, geschikt voor de regering.
 c. Van zijn afhankelijkheid van God. Hij poogt geen invloed te verkrijgen, maar laat het aan God over om Zijn eigen werk door Samuël voort te zetten en te voltooien, hij voor zich zal stilzitten om te zien hoe de zaak zal tot stand komen.
 
-## 1 Samuël 10:17 – 27
+## 1 Samuël 10:17-27
 
 Sauls verheffing ten troon wordt hier openlijk bekend gemaakt in een algemene vergadering van de oudsten van Israël te Mizpa, als de vertegenwoordigers hunner onderscheiden stammen. Waarschijnlijk werd deze bijeenkomst van de staten zo spoedig mogelijk belegd nadat Saul gezalfd was, want zo er een verandering in hun regering moest plaatshebben, dan moest dit maar hoe eerder hoe beter geschieden, het zou slechte gevolgen kunnen hebben indien er veel tijd over heenging. Het volk is samengekomen in een plechtige vergadering, waarin God op bijzondere wijze tegenwoordig was (weshalve gezegd wordt, dat zij samengeroepen worden tot de Heere). Samuël handelt voor God onder hen. 
 
