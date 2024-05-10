@@ -41,7 +41,9 @@ VI. Saul werd er door overtuigd van zijn dwaling, en heeft nogmaals de vervolgin
 
 2\. David ontvangt bericht van Sauls bewegingen en gaat verdedigenderwijs te werk. Hij is niet uitgetrokken om hem slag te gaan leveren hij zocht slechts zijn eigen veiligheid, niet Sauls verderf, maar David bleef in de woestijn, vers 3, zich hiermede groot geweld aandoende, en de kloekmoedigheid van zijn aard in toom houdende door een stil terugtrekken, maar meer waren moed tonende, dan hij door een aanval op Saul getoond zou hebben.
 a. Hij had verspieders, die hem van Sauls komst vertelden, dat Saul voorzeker kwam, vers 4, want hij wilde niet geloven dat Saul zo laaghartig met hem handelde, voor hij er de stelligste bewijzen van had.
-b. Hij ging persoonlijk waarnemen hoe Saul gelegerd was, vers 5. Hij kwam tot de plaats, waar Saul en zijn mannen hun tenten hadden opgeslagen, en wel zo dicht dat hij, zonder opgemerkt te worden de wagenburg in ogenschouw nam, waarschijnlijk des avonds, toen het donker was. 1 Samuël 26:6-12 
+b. Hij ging persoonlijk waarnemen hoe Saul gelegerd was, vers 5. Hij kwam tot de plaats, waar Saul en zijn mannen hun tenten hadden opgeslagen, en wel zo dicht dat hij, zonder opgemerkt te worden de wagenburg in ogenschouw nam, waarschijnlijk des avonds, toen het donker was. 
+
+## 1 Samuël 26:6-12 
 
 I. Hier is Davids stoutmoedig waagstuk om zich, alleen vergezeld door zijn bloedverwant Abisaï, de zoon van Zeruja, des nachts naar Sauls leger te begeven. Hij stelde dit voor aan hem en nog een ander van zijn vertrouwelingen, vers 6, maar de ander weigerde, hetzij omdat de onderneming al te gevaarlijk was, of tenminste omdat hij liever wilde dat Abisaï het zou doen dan hij zelf. Of David nu hiertoe gedrongen was door zijn eigen kloekmoedigheid, of door een buitengewone indruk in zijn hart of door het orakel, blijkt niet, maar evenals Gideon is hij door de bijzondere bescherming Gods de schildwachten voorbij gekomen zonder opgemerkt te worden.
 

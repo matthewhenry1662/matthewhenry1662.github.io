@@ -7,9 +7,9 @@
 7. Als de mannen van Israël, die aan deze zijde van het dal waren, en die aan deze zijde der Jordaan waren, zagen, dat de mannen van Israël gevloden waren, en dat Saul en zijn zonen dood waren, zo verlieten zij de steden, en zij vloden. Toen kwamen de Filistijnen en woonden daarin. 
 8. Het geschiedde nu des anderen daags, als de Filistijnen kwamen, om de verslagenen te plunderen, zo vonden zij Saul en zijn drie zonen, liggende op het gebergte Gilboa. 
 9. En zij hieuwen zijn hoofd af, en zij togen zijn wapenen uit, en zij zonden ze in der Filistijnen land rondom, om te boodschappen in het huis hunner afgoden, en onder het volk. 
-10. En zij leiden zijn wapenen in het huis van Astharoth; en zijn lichaam hechtten zij aan de muur te Beth - san. 
+10. En zij leiden zijn wapenen in het huis van Astharoth; en zijn lichaam hechtten zij aan de muur te Beth-san. 
 11. Als de inwoners van Jabes in Gilead daarvan hoorden, wat de Filistijnen Saul gedaan hadden; 
-12. Zo maakten zich op alle strijdbare mannen, en gingen de gehelen nacht, en zij namen het lichaam van Saul, en de lichamen zijner zonen, van de muur te Beth - san; en zij kwamen te Jabes, en brandden ze aldaar. 
+12. Zo maakten zich op alle strijdbare mannen, en gingen de gehelen nacht, en zij namen het lichaam van Saul, en de lichamen zijner zonen, van de muur te Beth-san; en zij kwamen te Jabes, en brandden ze aldaar. 
 13. En zij namen hun beenderen, en begroeven ze onder het geboomte te Jabes; en zij vastten zeven dagen. 
 
 ## Inleiding
@@ -21,9 +21,9 @@ II. Zijn drie zonen gedood, vers 2.
 III. Hijzelf gewond, vers 3. Gedood door zijn eigen hand, vers 4 De dood van zijn wapendrager, vers 5 en van al zijn mannen, vers 6.  
 IV. Zijn land in bezit van de Filistijnen, vers 7.    
 Zijn kamp geplunderd en zijn dood lichaam verlaten, vers 8. Er wordt gejuicht om zijn val. 
-Zijn lichaam openlijk tentoongesteld, vers 10 en met moeite gered door de mannen van Jabes in Gilead vers 11 - 13. Aldus viel de man, die door God was verworpen.
+Zijn lichaam openlijk tentoongesteld, vers 10 en met moeite gered door de mannen van Jabes in Gilead vers 11-13. Aldus viel de man, die door God was verworpen.
 
-## 1 Samuël 31:1 - 7 
+## 1 Samuël 31:1-7 
 
 De dag van de vergelding is nu gekomen waarin Saul rekenschap moet geven van het bloed van de Amalekieten, dat hij op zondige wijze gespaard heeft, en dat van de priesters, dat hij op nog zondiger wijze vergoten heeft, ook het bloed van David, dat hij had willen vergieten, wordt in rekening gebracht. Nu is de dag gekomen waarop hij moet vallen, zoals David voorzien heeft, wanneer hij in de strijd zal trekken en omkomen, Hoofdstuk 26:10. Kom en aanschouw de rechtvaardige oordelen Gods. 
 
@@ -47,7 +47,7 @@ IV. Zijn wapendrager, die weigerde hem te doden, weigerde niet om met hem te ste
 
 V. Doordat Sauls leger verslagen was, geraakte het land in zo’n verwarring, dat de inwoners van de naburige steden aan deze zijde van de Jordaan ze verlieten, en de Filistijnen ze voor een tijd in bezit hadden, totdat de zaken in Israël gevestigd waren, vers 7. In zo’n treurige toestand heeft Saul door zijn goddeloosheid het land gebracht, dat in de hand van de onbesnedenen had kunnen blijven, indien David niet verwekt was om zijn breuken te herstellen. Zie welk een koning hij bleek te zijn, voor wie zij God en Samuël hadden verworpen. Het is te vrezen dat zij nog waren voortgegaan kwaad te doen, zij, zowel als hij, en daarom moesten zij zowel als hun koning omkomen, gelijk als de profeet voorzegd had, Hoofdstuk 12:25. En hiernaar wordt lang daarna verwezen, Hosea 13:10,11 Waar is uw koning nu? Dat hij u behoude in al uw steden! En uw richters, waar gij van zeide: Geef mij een koning en vorsten? Ik gaf u een koning in Mijn toorn en nam hem weg in Mijn verbolgenheid, dat is: levende en stervende was hij een plaag voor u, gij kon niets anders verwachten. 
 
-## 1 Samuël 31:8 - 13
+## 1 Samuël 31:8-13
 
 De Schrift maakt geen melding van de zielen van Saul en van zijn zonen, wet er na hun dood van geworden is (de verborgen dingen zijn niet voor ons), maar alleen van hun lichamen. 
 
@@ -60,9 +60,9 @@ Maar zulke valse en dwaze denkbeelden hebben deze ijdele mensen (hoewel zij wijs
 
 3\. Zij zonden ijlboden door hun gehele land, en gaven bevel dat in al de huizen hunner goden de overwinning, die zij hadden behaald, bekendgemaakt moest worden, dat openbaar vreugdebetoon moest plaatshebben, en dankzegging gebracht moest worden aan hun goden. Dit heeft David ten zeerste betreurd, 2 Samuël 1:20. Verkondigt het niet te Gath.
 
-4\. Zij lichaam hechtten zij aan de muur te Beth - San, vers 10, en later in vers 12:zij namen het lichaam van Saul, en de lichamen zijner zonen, van de muur te Beth - San, en zij kwamen te Jabes, en brandden ze aldaar. (zoals blijkt uit vers 1 aan de muur te Beth - San, een stad, die niet ver van Gilboa gelegen was, en zeer dicht bij de Jordaan. Daar werden de dode lichamen heengesleept en opgehangen in ketenen, om door de roofvogels te worden verslonden. Saul heeft zichzelf gedood om te voorkomen dat de Filistijnen hem mishandelden, maar nooit was het lijk eens konings zó mishandeld als het zijne, wellicht nog temeer, als zij begrepen, dat hij zichzelf gedood heeft, en om die reden. Hij, die zijn eer denkt te redden door zonde zal haar zeker verliezen. Zie tot welk een hoogte van onbeschaamdheid de Filistijnen waren gekomen, even voordat David verwekt werd, die hen volkomen ten onder heeft gebracht. Nu zij Saul en zijn zonen gedood hadden, dachten zij dat het land Israëls voor altijd het hun was, maar zij hebben spoedig hun dwang bemerkt. Als God Zijn werk door hen heeft volbracht, dan zal Hij het aan hen volbrengen. Zie Jesaja 10:6, 7.
+4\. Zij lichaam hechtten zij aan de muur te Beth-San, vers 10, en later in vers 12:zij namen het lichaam van Saul, en de lichamen zijner zonen, van de muur te Beth-San, en zij kwamen te Jabes, en brandden ze aldaar. (zoals blijkt uit vers 1 aan de muur te Beth-San, een stad, die niet ver van Gilboa gelegen was, en zeer dicht bij de Jordaan. Daar werden de dode lichamen heengesleept en opgehangen in ketenen, om door de roofvogels te worden verslonden. Saul heeft zichzelf gedood om te voorkomen dat de Filistijnen hem mishandelden, maar nooit was het lijk eens konings zó mishandeld als het zijne, wellicht nog temeer, als zij begrepen, dat hij zichzelf gedood heeft, en om die reden. Hij, die zijn eer denkt te redden door zonde zal haar zeker verliezen. Zie tot welk een hoogte van onbeschaamdheid de Filistijnen waren gekomen, even voordat David verwekt werd, die hen volkomen ten onder heeft gebracht. Nu zij Saul en zijn zonen gedood hadden, dachten zij dat het land Israëls voor altijd het hun was, maar zij hebben spoedig hun dwang bemerkt. Als God Zijn werk door hen heeft volbracht, dan zal Hij het aan hen volbrengen. Zie Jesaja 10:6, 7.
 
-II. Hoe zij kloekmoedig gered werden door de mannen van Jabes in Gilead. Weinig meer dan de Jordaan lag tussen Beth-San en Jabes in Gilead, en aan die plaats was de Jordaan doorwaadbaar. Een stout stuk werd dus door de dappere mannen van die stad ondernomen, in de nacht trokken zij over de rivier, namen de dode lichamen van de muur, en begroeven ze, vers 11 - 13. Dit deden zij:
+II. Hoe zij kloekmoedig gered werden door de mannen van Jabes in Gilead. Weinig meer dan de Jordaan lag tussen Beth-San en Jabes in Gilead, en aan die plaats was de Jordaan doorwaadbaar. Een stout stuk werd dus door de dappere mannen van die stad ondernomen, in de nacht trokken zij over de rivier, namen de dode lichamen van de muur, en begroeven ze, vers 11-13. Dit deden zij:
 
 1\. Uit zorg in het algemeen voor de eer van Israël, of het land van Israël dat niet verontreinigd mocht worden door het tentoonstellen van dode lichamen, en inzonderheid van de kroon Israëls, die aldus door de onbesnedenen werd ontheiligd.
 

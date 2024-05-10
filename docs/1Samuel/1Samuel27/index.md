@@ -15,13 +15,13 @@
 
 David was een man naar Gods hart, en toch had hij zijn fouten en gebreken, die vermeld zijn, niet tot onze navolging, maar tot onze waarschuwing getuige de geschiedenis, vervat in dit hoofdstuk waarin wij:
 
-I. Wel bevinden, dat hij voorzichtig zorg droeg voor zijn veiligheid en die van zijn gezin vers 2 - 4, en kloekmoedig voor Israël streed tegen de Kanaänieten, vers 8, 9, maar,   
+I. Wel bevinden, dat hij voorzichtig zorg droeg voor zijn veiligheid en die van zijn gezin vers 2-4, en kloekmoedig voor Israël streed tegen de Kanaänieten, vers 8, 9, maar,   
 II waar wij tot zijn oneer vinden:  
 1. Dat hij begon te wanhopen aan zijn verlossing, vers 1.  
 2. Dat hij zijn eigen land verhef, en In het land van de Filistijnen ging wonen vers 1, 5, 7.  
-3. Dat hij Achis misleidde door een dubbelzinnigheid, indien al niet een leugen, betreffende zijn krijgstochten, vers 10 - 12.  
+3. Dat hij Achis misleidde door een dubbelzinnigheid, indien al niet een leugen, betreffende zijn krijgstochten, vers 10-12.  
 
-## 1 Samuël 27:1 - 7 
+## 1 Samuël 27:1-7 
 
 I. Hier wordt David overmocht door vrees, die een gevolg was van de zwakheid van zijn geloof, vers 1. "Hij zei tot zijn hart" (aldus kan deze zin gelezen worden) in zijn te rade gaan er mee betreffende zijn tegenwoordige toestand: Nu zal ik een der dagen door Sauls hand omkomen. Hij stelde zich de rusteloze woede en boosaardigheid voor van Saul, die in geen verzoening kon overgaan, en het verraad van zijn eigen landgenoten, getuige dat van de Zifieten, eenmaal en nogmaals. Hij zag op zijn krijgsmacht en merkte op hoe gering zij was, en dat er sedert lang geen rekruten tot hem gekomen waren, hij kon ook niet zien dat hij veld won, en zo geraakte hij in een treurige stemming en zegt: Nu zal ik een der dagen door Sauls hand omkomen. Maar, o gij kleingelovige, waarom wankelt gij? Was hij niet tot koning gezalfd? Lag daar de verzekering niet in opgesloten, dat hij voor het koninkrijk bewaard zal worden? Hij had geen reden om op Sauls beloften te vertrouwen, maar had hij niet alle mogelijke redenen om op Gods beloften te vertrouwen? Zijn ervaring van Gods bijzondere zorg over hem had hem moeten bemoedigen. Hij, die verlost heeft, verlost nog en zal ook later verlossen. Maar ongeloof is een zonde, die ook Godvruchtige mensen lichtelijk omringt. Als er van buiten strijd is, dan is er van binnen vrees, er. het is moeilijk die te overwinnen. Heere, vermeerder ons het geloof! 
 
@@ -47,11 +47,11 @@ b. Zoals het aan Achis werd voorgesteld was het zeer bescheiden. Hij schrijft he
 2\. De schenking, die Achis hem deed op zijn verzoek, was zeer edelmoedig en vriendelijk, vers 6, 7. Achis gaf hem Ziklag. Hierdoor:
 a. Verkreeg Israël zijn aloud recht, want Ziklag was in het lot van de stam van Juda, Jozua 15:31, en werd later uit dat lot met enige andere steden toegewezen aan Simeon, Jozua 19:5. Maar het was of nooit ten onder gebracht, of de Filistijnen hebben er zich in de een of andere worsteling met Israël meester van gemaakt. Misschien hebben zij het op onrechtvaardige wijze verkregen, en Achis, een man van verstand en van eer zijnde, nam de gelegenheid waar om het terug te geven, De HEERE dan vergelde aan een ieglijk zijn gerechtigheid, 1 Samuël 26:23.
 
-b. David verkreeg een gerieflijke vestiging, niet slechts op een goede afstand van Gath, maar aan de grenzen van Israël, waar hij in gemeenschap kon blijven met zijn eigen landslieden, en waar zij tot hem konden komen in de omwenteling, die nu aanstaande was. Hoewel wij niet bevinden dat zijn krijgsmacht vermeerderd is, zolang Saul leefde, (want, Hoofdstuk 30:10 hij had nog slechts zijn zes honderd mannen) was daar toch terstond na de dood van Saul de algemene plaats van bijeenkomst voor zijn vrienden. Ja het schijnt, dat terwijl hij zich in afzondering hield vanwege Saul, er toch velen tot hem gekomen zijn, om hem tenminste van hun oprechte bedoelingen te verzekeren, 1 Kronieken 12:1 - 22. 
+b. David verkreeg een gerieflijke vestiging, niet slechts op een goede afstand van Gath, maar aan de grenzen van Israël, waar hij in gemeenschap kon blijven met zijn eigen landslieden, en waar zij tot hem konden komen in de omwenteling, die nu aanstaande was. Hoewel wij niet bevinden dat zijn krijgsmacht vermeerderd is, zolang Saul leefde, (want, Hoofdstuk 30:10 hij had nog slechts zijn zes honderd mannen) was daar toch terstond na de dood van Saul de algemene plaats van bijeenkomst voor zijn vrienden. Ja het schijnt, dat terwijl hij zich in afzondering hield vanwege Saul, er toch velen tot hem gekomen zijn, om hem tenminste van hun oprechte bedoelingen te verzekeren, 1 Kronieken 12:1-22. 
 Ook verkreeg David nog dit voordeel, dat Ziklag aan de kroon kwam, het recht er op verbleef voortaan aan de koningen van Juda, vers 6. Door nederigheid en bescheidenheid en bereidwilligheid om zich op de achtergrond te houden zal men niets verliezen. Werkelijke voordelen vallen hun ten deel, die denkbeeldige eer afwijzen. Hier bleef David nu enigen tijd, namelijk vier maanden zoals het gelezen kan worden vers 7, of enige dagen meer dan vier maanden. 
 De LXX geven de lezing enige maanden, zolang wachtte hij op de tijd van zijn komst op de troon, want wie gelooft die zal niet haasten. 
 
-## 1 Samuël 27:8 - 12 
+## 1 Samuël 27:8-12 
 
 Hier is een bericht van Davids krijgsdaden terwijl hij in het land van de Filistijnen was, zijn verwoeden aanval op sommige van de overblijfselen van de gevloekte volken, zijn voorspoed daarbij, en de voorstelling, die hij er van gaf aan Achis.
 

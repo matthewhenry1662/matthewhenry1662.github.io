@@ -34,7 +34,7 @@ Saul, zich dronken gemaakt hebbende met het bloed van de priesters des Heeren, z
 
 I. De goede dienst, die hij zijn koning en vaderland bewees door de stad Kehila uit de handen van de Filistijn en te verlossen, vers 16.  
 II. Het gevaar, waarin hij hierdoor gebracht werd vanwege de boosaardigheid van de vorst, die hij diende, en het verraad van de stad, die hij had gered, en zijn verlossing door Goddelijke aanwijzing, vers 7-13.  
-III. David in een woud, en zijn vriend Jonathan bezoekt hem daar en bemoedigt hem, vers 14—18.  
+III. David in een woud, en zijn vriend Jonathan bezoekt hem daar en bemoedigt hem, vers 14-18.  
 IV. Het bericht, dat de Zifieten Saul gaven van Davids verblijfplaatsen, en Sauls expeditie om hem na te jagen, vers 19-25.  
 V. Dat David er ternauwernood aan ontkomt om in zijn handen te vallen, vers 26-28. Vele zijn de tegenspoeden des rechtvaardigen, maar uit alle die redt hem de HEERE.  
 
