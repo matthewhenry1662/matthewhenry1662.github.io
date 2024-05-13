@@ -26,7 +26,8 @@ I. David zendt een vriendelijk gezantschap tot Hanun, koning van de Ammonieten, 
 II. Op een laaghartig vermoeden dat het met slechte bedoeling gezonden was, mishandelt Hanun Davids gezanten vers 3,4.  
 III. Daar David dit zeer euvel opnam, vers 5, bereidden de Ammonieten zich ten krijg tegen hem vers 6.  
 IV. David brengt de oorlog over in hun eigen land, zendt Joab en Abisaï tegen hen, die de krijg met veel dapperheid en beleid gevoerd hebben, vers 7-12.  
-V. De Ammonieten en de Syriërs, hun bondgenoten, werden volkomen geslagen, vers 13, 14. VI. De krijgsmacht van de Syriërs, die zich hersteld had, wordt ten tweeden male verslagen, vers 15- 19. Aldus heeft David zijn naam opgehouden voor dankbaarheid, door vriendelijkheid te vergelden, en voor gerechtigheid, door beledigingen te wreken.  
+V. De Ammonieten en de Syriërs, hun bondgenoten, werden volkomen geslagen, vers 13, 14.  
+VI. De krijgsmacht van de Syriërs, die zich hersteld had, wordt ten tweeden male verslagen, vers 15-19. Aldus heeft David zijn naam opgehouden voor dankbaarheid, door vriendelijkheid te vergelden, en voor gerechtigheid, door beledigingen te wreken.  
 
 ## 2 Samuël 10:1-5 
 
@@ -68,7 +69,7 @@ V. De overwinning, die Joab over de verbonden legers van Syrië en Ammon heeft b
 
 ## 2 Samuël 10:15-19 
 
-1. Hier is een nieuwe poging van de Syriërs om hun verloren eer te herwinnen en de voortgang van Davids zegevierende wapenen te stuiten. Het leger, dat onlangs verslagen werd, herzamelde zich, zij vergaderden zich weer tezamen, vers 15, de verslagen vijand zal, zolang er nog enig leven in hem is weerstand bieden, de vijanden van de Zone Davids doen dit ook, Mattheus 22:34, Openbaring 19:19. Dezen hier, zich bewust zijnde van hun ontoereikendheid, riepen de hulp in van hun bondgenoten en van degenen, die van hen afhankelijk waren aan de andere kant van de rivier vers 16, en, aldus versterkt zijnde, hoopten zij Israël te kunnen verslaan, maar zij wisten de gedachten des Heeren niet, dat Hij hen vergaderd heeft als garven voor de dorsvloer. Zie Micha 4:11-13.
+1\. Hier is een nieuwe poging van de Syriërs om hun verloren eer te herwinnen en de voortgang van Davids zegevierende wapenen te stuiten. Het leger, dat onlangs verslagen werd, herzamelde zich, zij vergaderden zich weer tezamen, vers 15, de verslagen vijand zal, zolang er nog enig leven in hem is weerstand bieden, de vijanden van de Zone Davids doen dit ook, Mattheus 22:34, Openbaring 19:19. Dezen hier, zich bewust zijnde van hun ontoereikendheid, riepen de hulp in van hun bondgenoten en van degenen, die van hen afhankelijk waren aan de andere kant van de rivier vers 16, en, aldus versterkt zijnde, hoopten zij Israël te kunnen verslaan, maar zij wisten de gedachten des Heeren niet, dat Hij hen vergaderd heeft als garven voor de dorsvloer. Zie Micha 4:11-13.
 
 2\. Het verijdelen van deze poging door de waakzaamheid en kloekmoedigheid van David, die, bericht gekregen hebbende van hun voornemen niet wachtte totdat zij hem aanvielen, maar in persoon aan het hoofd van zijn leger over de Jordaan trok vers 17, en de Syriërs in een geregelde veldslag versloeg, vers 18, zeven duizend man doodde, die tot zeven honderd wagens behoorden, en veertig duizend andere soldaten, ruiters en voetvolk, zoals blijkt uit een vergelijking met 1 Kronieken 19:18. Hun veldoverste sneuvelde, en David is ongetwijfeld zegevierend teruggekomen.
 

@@ -48,7 +48,7 @@ Wij verlieten Davids leger in triomf, en toch David zelf in tranen, nu hebben wi
 I. Dat hij door Joabs redenering weer tot zichzelf komt vers 1-8.  
 II. Zijn terugkeer tot zijn koninkrijk uit zijn tegenwoordige ballingschap.  
 1. De mannen Israëls zijn zelf vol van ijver om hem terug te brengen, vers 9-10.  
-2. Met de mannen van Juda wordt door Davids agenten gehandeld om dit te doen vers 11—14 en zij doen het, vers 15.  
+2. Met de mannen van Juda wordt door Davids agenten gehandeld om dit te doen vers 11-14 en zij doen het, vers 15.  
 III. Bij des konings komst over de Jordaan wordt aan Simeï vergeving geschonken voor zijn verraad, vers 16-23. Mefiboseths niet medegaan met de koning wordt verontschuldigd, vers 24-30. Barzillai’s vriendelijkheid wordt dankbaar erkend en beloond aan zijn zoon, vers 31-40.  
 IV. De mannen Israëls twisten met de mannen van Juda omdat zij hen niet geroepen hadden bij de plechtigheid van des konings herstelling op de troon, hetgeen een nieuwe rebellie tengevolge heeft, die in het volgende hoofdstuk zal verhaald worden, vers 41-43.  
 
