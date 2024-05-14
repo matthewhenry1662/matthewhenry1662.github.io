@@ -36,7 +36,7 @@ I. Achab kwijnt van verlangen naar Naboths wijngaard, vers 1-4.
 II. Naboth sterft door Izébels komplot tegen hem opdat de wijngaard aan Achab zou komen, vers 5 -14.  
 III. Achab gaat er bezit van nemen, vers 15, 16.  
 IV. Elia ontmoet hem, en kondigt Gods oordelen over hem aan wegens zijn onrechtvaardigheid vers 17-24.  
-V Op zijn verootmoediging wordt hem uitstel verleend, vers 25-29.  
+V. Op zijn verootmoediging wordt hem uitstel verleend, vers 25-29.  
 
 ## 1 Koningen 21:1-4 
 

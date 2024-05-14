@@ -37,7 +37,7 @@ b. Door zoveel wijsheid te hebben, dat hij naar hem luisterde en zich door hem l
 
 3\. Dat de hoogten niet werden weggenomen, vers 3. Overal in het land hadden zij altaren, beide voor offers en voor reukwerk, ter ere van de God Israëls alleen, maar in mededinging met, of tenminste in stilzwijgende minachting van Zijn altaar te Jeruzalem. Deze afzonderlijke altaren waren misschien meer in gebruik gedurende de laatste slechte regeringen dan vroeger, omdat het niet veilig was op te gaan naar Jeruzalem, en de tempeldienst ook niet naar behoren werd waargenomen, het kan ook zijn, dat Jojada ze oogluikend heeft toegelaten, omdat sommige welmenende personen er blij mee waren, als zij niets beters konden hebben, en hij hoopte dat door de reformatie in de tempeldienst, en door de zaken op de goede ordelijke voet te herstellen, het volk wel langzamerhand van hun hoogten weggetrokken zou worden, en deze dus vanzelf zouden verminderen, of misschien had noch de koning noch de priester ijver genoeg om hun hervorming zó ver uit te strekken, noch kracht of moed genoeg om zich tegen zo’n ingewortelde gewoonte te verzetten. 
 
-## Koningen 12:4-16 
+## 2 Koningen 12:4-16 
 
 Wij hebben hier een bericht van de herstelling van de tempel, onder de regering van Joas.
 

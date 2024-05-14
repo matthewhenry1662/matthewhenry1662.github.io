@@ -65,7 +65,7 @@ d. Dat hij woonde in een afgezonderd huis, daar hij door de wet ceremonieel onre
 
 e. Dat zijn zoon als zijn onderkoning optrad zowel voor de zaken van zijn hof, want hij was over het huis, als van het rijk, want hij richtte het volk des lands, en het was een troost voor hem, en een zegen voor zijn rijk, dat hij zo’n zoon had, die zijn plaats kon innemen. 
 
-## Koningen 15:8-31 
+## 2 Koningen 15:8-31 
 
 Het waren de beste dagen van het rijk van Israël, toen Jehu’s geslacht regeerde. Er waren onder zijn regering en de drie volgende wel veel afschuwelijke verdorvenheden in Israël, maar de kroon ging over van vader op zoon, de koningen stierven in hun bed, en er werd wel enige zorg gedragen voor de openbare aangelegenheden, maar nu zijn die dagen voorbij, en de geschiedenis, die wij in deze verzen hebben, en die ongeveer drie en dertig jaren omvat toont ons de zaken van dat koninkrijk in de uiterste verwarring. Wee de bevruchte vrouwen vers 16, en wee de zogende vrouwen in die dagen, want toen moesten er wel grote verdrukkingen zijn, toen om de vele overtreding van de vorsten van het land.
 

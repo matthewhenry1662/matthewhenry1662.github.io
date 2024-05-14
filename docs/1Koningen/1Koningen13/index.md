@@ -1,51 +1,51 @@
-1 En ziet, een man Gods kwam uit Juda, door het woord des HEEREN tot Beth-el; en Jerobeam stond bij het altaar, om te roken. 
-2 En hij riep tegen het altaar, door het woord des HEEREN, en zeide: Altaar, altaar, zo zegt de HEERE: Zie, een zoon zal aan het huis Davids geboren worden, wiens naam zal zijn Josia; die zal op u offeren de priesters der hoogten, die op u roken, en men zal mensenbeenderen op u verbranden. 
-3 En hij gaf ten zelfden dage een wonderteken, zeggende: Dit is dat wonderteken, waarvan de HEERE gesproken heeft; ziet, het altaar zal vaneen gescheurd, en de as, die daarop is, afgestort worden. 
-4 Het geschiedde nu, als de koning het woord van de man Gods hoorde, hetwelk hij tegen het altaar te Beth-el geroepen had, dat Jerobeam zijn hand van op het altaar uitstrekte, zeggende: Grijpt hem! Maar zijn hand, die hij tegen hem uitgestrekt had, verdorde, dat hij ze niet weder tot zich trekken kon. 
-5 En het altaar werd vaneen gescheurd, en de as van het altaar afgestort, naar dat wonderteken, dat de man Gods gegeven had, door het woord des HEEREN. 
-6 Toen antwoordde de koning, en zeide tot de man Gods: Aanbid toch het aangezicht des HEEREN, uws Gods, ernstelijk, en bid voor mij, dat mijn hand weder tot mij kome! Toen bad de man Gods het aangezicht des HEEREN ernstelijk; en de hand des konings kwam weder tot hem, en werd gelijk te voren. 
-7 En de koning sprak tot de man Gods: Kom met mij naar huis, en sterk u, en ik zal u een geschenk geven. 
-8 Maar de man Gods zeide tot de koning: Al gaaft gij mij de helft van uw huis, zo zou ik niet met u gaan, en ik zou in deze plaats geen brood eten, noch water drinken. 
-9 Want zo heeft mij de HEERE geboden door Zijn woord, zeggende: Gij zult geen brood eten, noch water drinken; en gij zult niet wederkeren door de weg, dien gij gegaan zijt. 
-10 En hij ging door een anderen weg, en keerde niet weder door de weg, door welken hij te Beth-el gekomen was.
-11 Een oud profeet nu woonde te Beth-el; en zijn zoon kwam, en vertelde hem al het werk, dat de man Gods te dien dage in Beth-el gedaan had, met de woorden, die hij tot de koning gesproken had; deze vertelden zij ook hun vader. 
-12 En hun vader sprak tot hen: Wat weg is hij getogen? En zijn zonen hadden de weg gezien, welken de man Gods was getogen, die uit Juda gekomen was. 
-13 Toen zeide hij tot zijn zonen: Zadelt mij de ezel. En zij zadelden hem de ezel, en hij reed daarop. 
-14 En hij toog de man Gods na, en vond hem zittende onder een eik; en hij zeide tot hem: Zijt gij de man Gods, die uit Juda gekomen zijt? En hij zeide: Ik ben het. 
-15 Toen zeide hij tot hem: Kom met mij naar huis, en eet brood. 
-16 Doch hij zeide: Ik kan niet met u wederkeren, noch met u inkomen; ik zal ook geen brood eten, noch met u water drinken, in deze plaats. 
-17 Want een woord is tot mij geschied door het woord des HEEREN: Gij zult aldaar noch brood eten, noch water drinken; gij zult niet wederkeren, gaande door de weg, door denwelken gij gegaan zijt. 
-18 En hij zeide tot hem: Ik ben ook een profeet, gelijk gij, en een engel heeft tot mij gesproken door het woord des HEEREN, zeggende: Breng hem weder met u in uw huis, dat hij brood ete en water drinke. Doch hij loog hem. 
-19 En hij keerde met hem wederom, en at brood in zijn huis, en dronk water. 
-20 En het geschiedde, als zij aan de tafel zaten, dat het woord des HEEREN geschiedde tot de profeet, die hem had doen wederkeren; 
-21 En hij riep tot de man Gods, die uit Juda gekomen was, zeggende: Zo zegt de HEERE: Daarom dat gij de mond des HEEREN zijt wederspannig geweest, en niet gehouden hebt het gebod, dat u de HEERE, uw God, geboden had, 
-22 Maar zijt wedergekeerd, en hebt brood gegeten en water gedronken ter plaatse, waarvan Hij tot u gesproken had: Gij zult geen brood eten noch water drinken; zo zal uw dood lichaam in uw vaderen graf niet komen. 
-23 En het geschiedde, nadat hij brood gegeten, en nadat hij gedronken had, dat hij hem de ezel zadelde, te weten voor de profeet, dien hij had doen wederkeren. 
-24 Zo toog hij heen, en een leeuw vond hem op de weg, en doodde hem; en zijn dood lichaam lag geworpen op de weg, en de ezel stond daarbij; ook stond de leeuw bij het dode lichaam. 
-25 En ziet, er gingen lieden voorbij, en zagen het dode lichaam geworpen op de weg, en de leeuw, staande bij het dode lichaam; en zij kwamen en zeiden het in de stad, waarin de oude profeet woonde. 
-26 Als de profeet, die hem van de weg had doen wederkeren, dit hoorde, zo zeide hij: Het is de man Gods, die de mond des HEEREN wederspannig is geweest; daarom heeft de HEERE hem de leeuw overgegeven, die hem gebroken, en hem gedood heeft, naar het woord des HEEREN, dat Hij tot hem gesproken had. 
-27 Verder sprak hij tot zijn zonen, zeggende: Zadelt mij de ezel. En zij zadelden hem. 
-28 Toen toog hij heen, en vond zijn dood lichaam geworpen op de weg, en de ezel, en de leeuw, staande bij het dode lichaam; de leeuw had het dode lichaam niet gegeten, en de ezel niet gebroken. 
-29 Toen nam de profeet het dode lichaam van de man Gods op, en leide dat op de ezel, en voerde het wederom; zo kwam de oude profeet in de stad om rouw te bedrijven en hem te begraven. 
-30 En hij leide zijn dood lichaam in zijn graf; en zij maakten over hem een weeklage: Ach, mijn broeder! 
-31 Het geschiedde nu, nadat hij hem begraven had, dat hij sprak tot zijn zonen, zeggende: Als ik zal gestorven zijn, zo begraaft mij in dat graf, waarin de man Gods begraven is, en legt mijn beenderen bij zijn beenderen. 
-32 Want de zaak zal gewisselijk geschieden, die hij door het woord des HEEREN uitgeroepen heeft tegen het altaar, dat te Beth-el is, en tegen al de huizen der hoogten, die in de steden van Samaria zijn. 
-33 Na deze geschiedenis keerde zich Jerobeam niet van zijn bozen weg; maar maakte wederom priesters der hoogten van de geringsten des volks; wie wilde, diens hand vulde hij, en werd een van de priesters der hoogten. 
-34 En hij werd in deze zaak het huis van Jerobeam tot zonde, om hetzelve te doen afsnijden en te verdelgen van de aardbodem. 
+1. En ziet, een man Gods kwam uit Juda, door het woord des HEEREN tot Beth-el; en Jerobeam stond bij het altaar, om te roken. 
+2. En hij riep tegen het altaar, door het woord des HEEREN, en zeide: Altaar, altaar, zo zegt de HEERE: Zie, een zoon zal aan het huis Davids geboren worden, wiens naam zal zijn Josia; die zal op u offeren de priesters der hoogten, die op u roken, en men zal mensenbeenderen op u verbranden. 
+3. En hij gaf ten zelfden dage een wonderteken, zeggende: Dit is dat wonderteken, waarvan de HEERE gesproken heeft; ziet, het altaar zal vaneen gescheurd, en de as, die daarop is, afgestort worden. 
+4. Het geschiedde nu, als de koning het woord van de man Gods hoorde, hetwelk hij tegen het altaar te Beth-el geroepen had, dat Jerobeam zijn hand van op het altaar uitstrekte, zeggende: Grijpt hem! Maar zijn hand, die hij tegen hem uitgestrekt had, verdorde, dat hij ze niet weder tot zich trekken kon. 
+5. En het altaar werd vaneen gescheurd, en de as van het altaar afgestort, naar dat wonderteken, dat de man Gods gegeven had, door het woord des HEEREN. 
+6. Toen antwoordde de koning, en zeide tot de man Gods: Aanbid toch het aangezicht des HEEREN, uws Gods, ernstelijk, en bid voor mij, dat mijn hand weder tot mij kome! Toen bad de man Gods het aangezicht des HEEREN ernstelijk; en de hand des konings kwam weder tot hem, en werd gelijk te voren. 
+7. En de koning sprak tot de man Gods: Kom met mij naar huis, en sterk u, en ik zal u een geschenk geven. 
+8. Maar de man Gods zeide tot de koning: Al gaaft gij mij de helft van uw huis, zo zou ik niet met u gaan, en ik zou in deze plaats geen brood eten, noch water drinken. 
+9. Want zo heeft mij de HEERE geboden door Zijn woord, zeggende: Gij zult geen brood eten, noch water drinken; en gij zult niet wederkeren door de weg, dien gij gegaan zijt. 
+10. En hij ging door een anderen weg, en keerde niet weder door de weg, door welken hij te Beth-el gekomen was.
+11. Een oud profeet nu woonde te Beth-el; en zijn zoon kwam, en vertelde hem al het werk, dat de man Gods te dien dage in Beth-el gedaan had, met de woorden, die hij tot de koning gesproken had; deze vertelden zij ook hun vader. 
+12. En hun vader sprak tot hen: Wat weg is hij getogen? En zijn zonen hadden de weg gezien, welken de man Gods was getogen, die uit Juda gekomen was. 
+13. Toen zeide hij tot zijn zonen: Zadelt mij de ezel. En zij zadelden hem de ezel, en hij reed daarop. 
+14. En hij toog de man Gods na, en vond hem zittende onder een eik; en hij zeide tot hem: Zijt gij de man Gods, die uit Juda gekomen zijt? En hij zeide: Ik ben het. 
+15. Toen zeide hij tot hem: Kom met mij naar huis, en eet brood. 
+16. Doch hij zeide: Ik kan niet met u wederkeren, noch met u inkomen; ik zal ook geen brood eten, noch met u water drinken, in deze plaats. 
+17. Want een woord is tot mij geschied door het woord des HEEREN: Gij zult aldaar noch brood eten, noch water drinken; gij zult niet wederkeren, gaande door de weg, door denwelken gij gegaan zijt. 
+18. En hij zeide tot hem: Ik ben ook een profeet, gelijk gij, en een engel heeft tot mij gesproken door het woord des HEEREN, zeggende: Breng hem weder met u in uw huis, dat hij brood ete en water drinke. Doch hij loog hem. 
+19. En hij keerde met hem wederom, en at brood in zijn huis, en dronk water. 
+20. En het geschiedde, als zij aan de tafel zaten, dat het woord des HEEREN geschiedde tot de profeet, die hem had doen wederkeren; 
+21. En hij riep tot de man Gods, die uit Juda gekomen was, zeggende: Zo zegt de HEERE: Daarom dat gij de mond des HEEREN zijt wederspannig geweest, en niet gehouden hebt het gebod, dat u de HEERE, uw God, geboden had, 
+22. Maar zijt wedergekeerd, en hebt brood gegeten en water gedronken ter plaatse, waarvan Hij tot u gesproken had: Gij zult geen brood eten noch water drinken; zo zal uw dood lichaam in uw vaderen graf niet komen. 
+23. En het geschiedde, nadat hij brood gegeten, en nadat hij gedronken had, dat hij hem de ezel zadelde, te weten voor de profeet, dien hij had doen wederkeren. 
+24. Zo toog hij heen, en een leeuw vond hem op de weg, en doodde hem; en zijn dood lichaam lag geworpen op de weg, en de ezel stond daarbij; ook stond de leeuw bij het dode lichaam. 
+25. En ziet, er gingen lieden voorbij, en zagen het dode lichaam geworpen op de weg, en de leeuw, staande bij het dode lichaam; en zij kwamen en zeiden het in de stad, waarin de oude profeet woonde. 
+26. Als de profeet, die hem van de weg had doen wederkeren, dit hoorde, zo zeide hij: Het is de man Gods, die de mond des HEEREN wederspannig is geweest; daarom heeft de HEERE hem de leeuw overgegeven, die hem gebroken, en hem gedood heeft, naar het woord des HEEREN, dat Hij tot hem gesproken had. 
+27. Verder sprak hij tot zijn zonen, zeggende: Zadelt mij de ezel. En zij zadelden hem. 
+28. Toen toog hij heen, en vond zijn dood lichaam geworpen op de weg, en de ezel, en de leeuw, staande bij het dode lichaam; de leeuw had het dode lichaam niet gegeten, en de ezel niet gebroken. 
+29. Toen nam de profeet het dode lichaam van de man Gods op, en leide dat op de ezel, en voerde het wederom; zo kwam de oude profeet in de stad om rouw te bedrijven en hem te begraven. 
+30. En hij leide zijn dood lichaam in zijn graf; en zij maakten over hem een weeklage: Ach, mijn broeder! 
+31. Het geschiedde nu, nadat hij hem begraven had, dat hij sprak tot zijn zonen, zeggende: Als ik zal gestorven zijn, zo begraaft mij in dat graf, waarin de man Gods begraven is, en legt mijn beenderen bij zijn beenderen. 
+32. Want de zaak zal gewisselijk geschieden, die hij door het woord des HEEREN uitgeroepen heeft tegen het altaar, dat te Beth-el is, en tegen al de huizen der hoogten, die in de steden van Samaria zijn. 
+33. Na deze geschiedenis keerde zich Jerobeam niet van zijn bozen weg; maar maakte wederom priesters der hoogten van de geringsten des volks; wie wilde, diens hand vulde hij, en werd een van de priesters der hoogten. 
+34. En hij werd in deze zaak het huis van Jerobeam tot zonde, om hetzelve te doen afsnijden en te verdelgen van de aardbodem. 
 
 ## Inleiding
 
 Aan het einde van het vorige hoofdstuk verlieten wij Jerobeam, dienende aan zijn altaar te Bethel, en daar vinden wij hem aan het begin van dit, toen hij een getuigenis van God ontving tegen zijn afgoderij en afval. Dit werd hem gezonden door een profeet, een man Gods, die in Juda woonde, en die het voornaamste onderwerp is van de geschiedenis in dit hoofdstuk, waarin ons gezegd wordt: 
 
 I. Wat er voorviel tussen hem en de nieuwe koning.  
-1.De profeet dreigde Jerobeams altaar, vers 1, 2, en gaf hem een teken, vers 3, dat dadelijk plaats had, vers 5.  
-2. De koning dreigde de profeet, en werd zelf tot een tweede teken gemaakt door het verdorren van zijn hand, vers 4, en de herstelling er van na zijn onderwerping en des profeten voorbede, vers 6.  
-3. De profeet wijst de vriendelijkheid af, die hem hierop werd aangeboden, vers 7-10.  
+1\. De profeet dreigde Jerobeams altaar, vers 1, 2, en gaf hem een teken, vers 3, dat dadelijk plaats had, vers 5.  
+2\. De koning dreigde de profeet, en werd zelf tot een tweede teken gemaakt door het verdorren van zijn hand, vers 4, en de herstelling er van na zijn onderwerping en des profeten voorbede, vers 6.  
+3\. De profeet wijst de vriendelijkheid af, die hem hierop werd aangeboden, vers 7-10.  
 II. Wat er voorviel tussen hem en de oude profeet.  
-1. De oude profeet deed hem terugkomen door een leugen en onthaalde hem in zijn huis, vers 11-19.  
-2. Omdat hij dit onthaal in ongehoorzaamheid aan het Goddelijk bevel heeft aangenomen, wordt hij gedreigd met de dood, vers 20-22. En:  
-3. De bedreiging wordt volvoerd, want hij wordt gedood door een leeuw, vers 23, 24, en begraven te Bethel, vers 25-32.  
-4. Jerobeam wordt verhard in zijn afgoderij, vers 33, 34. "Heere Uw oordelen zijn een grote afgrond".  
+1\. De oude profeet deed hem terugkomen door een leugen en onthaalde hem in zijn huis, vers 11-19.  
+2\. Omdat hij dit onthaal in ongehoorzaamheid aan het Goddelijk bevel heeft aangenomen, wordt hij gedreigd met de dood, vers 20-22. En:  
+3\. De bedreiging wordt volvoerd, want hij wordt gedood door een leeuw, vers 23, 24, en begraven te Bethel, vers 25-32.  
+4\. Jerobeam wordt verhard in zijn afgoderij, vers 33, 34. "Heere Uw oordelen zijn een grote afgrond".  
 
 ## 1 Koningen 13:1-10 
 
@@ -77,7 +77,11 @@ VI. Des profeten weigering van Jerobeams vriendelijke uitnodiging, waarin wij mo
 
 2\. Dat Jerobeam zo getroffen was door de genezing van zijn hand, dat hij, hoewel wij niet lezen van zijn dankzegging aan God voor die zegen, of dat hij een offer gezonden heeft naar het altaar te Jeruzalem in dankerkentenis er voor, toch zijn dankbaarheid aan de profeet heeft willen tonen, en hem wilde betalen voor zijn gebed, vers 7. Gunsten, die het lichaam ten goede komen, zullen mensen, die geen genade hebben, nog dankbaar doen schijnen jegens goede leraren.
 
-3\. Dat de profeet, hoewel hij hongerig en vermoeid en misschien arm was, in gehoorzaamheid aan het gebod van God beide het onthaal en de beloning heeft afgewezen, die hem aangeboden waren. Hij zou hebben kunnen denken dat hij, zo hij het onthaal aannam, nog verder gelegenheid zou kunnen hebben om met de koning te spreken, en bij hem aan te dringen op bekering, nu hij overtuigd was geworden van zijn zending door God, maar hij wil niet wijzer zijn dan God, maar als een getrouwe nauwlettende bode spoedt hij zich naar huis, nu zijn boodschap volbracht is. Diegenen hebben de les van de zelfverloochening niet goed geleerd, die zich niet van een verboden maaltijd kunnen onthouden. Koningen 13:11-22 De man Gods had eerlijk en kloekmoedig de uitnodiging van de koning geweigerd, ofschoon hij hem een beloning had toegezegd, maar door een oude profeet liet hij zich overreden om met hem terug te gaan naar Bethel en er een middagmaal te gebruiken in weerwil van het gebod, dat hem gegeven was. Wij zien hier hoe duur dit middagmaal hem te staan is gekomen. 
+3\. Dat de profeet, hoewel hij hongerig en vermoeid en misschien arm was, in gehoorzaamheid aan het gebod van God beide het onthaal en de beloning heeft afgewezen, die hem aangeboden waren. Hij zou hebben kunnen denken dat hij, zo hij het onthaal aannam, nog verder gelegenheid zou kunnen hebben om met de koning te spreken, en bij hem aan te dringen op bekering, nu hij overtuigd was geworden van zijn zending door God, maar hij wil niet wijzer zijn dan God, maar als een getrouwe nauwlettende bode spoedt hij zich naar huis, nu zijn boodschap volbracht is. Diegenen hebben de les van de zelfverloochening niet goed geleerd, die zich niet van een verboden maaltijd kunnen onthouden. 
+
+## 1 Koningen 13:11-22 
+
+De man Gods had eerlijk en kloekmoedig de uitnodiging van de koning geweigerd, ofschoon hij hem een beloning had toegezegd, maar door een oude profeet liet hij zich overreden om met hem terug te gaan naar Bethel en er een middagmaal te gebruiken in weerwil van het gebod, dat hem gegeven was. Wij zien hier hoe duur dit middagmaal hem te staan is gekomen. 
 
 Let met verbazing op: 
 I. De slechtheid van de oude profeet. Ik kan niet anders dan hem een valse profeet en een slecht man noemen, daar het veel gemakkelijker is te geloven dat aan iemand van zo’n slecht karakter een bevestiging zou ontwrongen worden van hetgeen de man Gods gezegd heeft, zoals wij bevinden in vers 32, dan dat een waar profeet en een goed man zo’n opzettelijke leugen zou spreken, en haar zou toeschrijven aan God. Een goede boom zou nooit zulke verdorven vruchten voortbrengen. Misschien was hij onder de zonen van de profeten opgevoed in een van Samuëls scholen niet ver van daar, vanwaar hij de naam behield van een profeet, maar wereldsgezind en onheilig geworden zijnde, was de geest van de profetie van hem geweken. Indien hij een goede profeet ware geweest, hij zou Jerobeams afgoderij hebben bestraft en zijn zonen niet hebben toegelaten om aan zijn altaren te komen, zoals hij gedaan scheen te hebben.
@@ -95,7 +99,11 @@ III. De handelingen van de Goddelijke gerechtigheid hierop, en hier kunnen wij o
 2\. Maar nog vreemder was het dat de oude profeet zelf die boodschap moest brengen, daarvan kunnen wij geen andere reden aanduiden dan deze: dat God het aldus gewild heeft zoals Hij tot Bileam gesproken heeft door zijn ezel, en aan Saul zijn oordeel heeft doen aankondigen door de duivel in de gedaante van Samuël. Wij kunnen denken dat God hiermede bedoelde: 
 a. De liegende profeet op te schrikken, en hem zijn zonde bekend te maken. De boodschap moest hem te dieper treffen, nu hij zelf haar moest brengen, en zijn hart was zo sterk onder de indruk er van, dat hij riep, schreeuwde, als iemand, die in doodsbenauwdheid is, vers 21. Hij had reden te denken: indien hij moet sterven voor zijn ongehoorzaamheid, die door verrassing had gezondigd, hoeveel zwaarder straf zal hij waardig geacht worden, die een engel Gods had belasterd en een man Gods door opzettelijk bedrog had misleid. Indien dit aan het groene hout geschiedde, wat zal aan het dorre geschieden? Misschien heeft het een goede uitwerking op hem gehad. Zij, die Gods toorn prediken aan anderen, hebben wel zeer harde harten zo zij zelf niet vrezen.
 
-b. Om de profeet, die bedrogen was, nog dieper te vernederen, en te tonen wat diegenen moeten verwachten, die luisteren naar de grote bedrieger. Zij, die aan hem als verleider toegeven, zullen door hem verschrikt worden. Hen die hij nu vleit, zal hij dan aanvallen, en die hij tot zonde verlokt, zal hij dan tot wanhoop zoeken te brengen. Koningen 13:23-34 I. Hier is de dood van de bedrogen, ongehoorzame profeet. Alsof de oude profeet, die hem misleid had, hem het kwaad, dat hij hem gedaan had, enigszins wilde vergoeden, of het bedreigde kwaad van hem wilde afwenden voorzag hij hem van een ezel om naar huis te rijden, maar op weg heeft een leeuw hem aangevallen en gedood, vers 23, 24. Hij keerde slechts terug om enige verversingen te gebruiken toen hij honger had, en zie, daar moet hij voor sterven, zie 1 Samuël 14, 43. 
+b. Om de profeet, die bedrogen was, nog dieper te vernederen, en te tonen wat diegenen moeten verwachten, die luisteren naar de grote bedrieger. Zij, die aan hem als verleider toegeven, zullen door hem verschrikt worden. Hen die hij nu vleit, zal hij dan aanvallen, en die hij tot zonde verlokt, zal hij dan tot wanhoop zoeken te brengen. 
+
+## 1 Koningen 13:23-34 
+
+I. Hier is de dood van de bedrogen, ongehoorzame profeet. Alsof de oude profeet, die hem misleid had, hem het kwaad, dat hij hem gedaan had, enigszins wilde vergoeden, of het bedreigde kwaad van hem wilde afwenden voorzag hij hem van een ezel om naar huis te rijden, maar op weg heeft een leeuw hem aangevallen en gedood, vers 23, 24. Hij keerde slechts terug om enige verversingen te gebruiken toen hij honger had, en zie, daar moet hij voor sterven, zie 1 Samuël 14, 43. 
 
 Maar wij moeten bedenken: 
 1\. Dat zijn zonde groot was, en het kan hem volstrekt niet rechtvaardigen dat hij ertoe gebracht was door een leugen, hij kon niet zo zeker zijn van het tegenbevel, gezonden door een ander, als hij van het bevel was, dat aan hemzelf gegeven werd. Hij had ook generlei grond om te denken dat het bevel herroepen zou worden, als de reden er voor in volle kracht bleef, welke was: zijn verfoeiing te betuigen van de goddeloosheid van deze plaats. Hij had grote reden om de eerlijkheid te betwijfelen van die oude profeet, die zelf geen getuigenis aflegde tegen de afgoderij, en God heeft het ook niet gepast geoordeeld om van hem gebruik te maken als een getuige tegen de afgoderij van de stad van zijn inwoning. Hij had ook tijd moeten nemen om God te bidden om leiding, en niet zo spoedig er in moeten bewilligen om weer te keren. Dacht hij dat het huis van deze oude profeet veiliger was dan een ander huis in Bethel om er brood in te eten, als God hem verboden had om ergens in die plaats te eten? Dat stond gelijk met wijzer te willen zijn dan God. Dacht hij er zich mee te verontschuldigen, dat hij honger had? Heeft hij dan nooit gelezen, dat de mens niet alleen van het brood leeft? 

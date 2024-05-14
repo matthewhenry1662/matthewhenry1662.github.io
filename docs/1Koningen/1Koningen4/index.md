@@ -40,7 +40,8 @@ I. De pracht van zijn hof, zijn staatsdienaren, vers 1-6, en de verzorgers van z
 II. De provisie voor zijn tafel, vers 22-23.  
 III. De uitgestrektheid van zijn heerschappij, vers 21-24.  
 IV. Het aantal, de welvaart e n de vrede van zij n onderdanen, vers 20-25.  
-V. Zijn stallen, vers 26. VI. Zijn grote vermaardheid voor wijsheid en wetenschap, vers 29-34.  
+V. Zijn stallen, vers 26.  
+VI. Zijn grote vermaardheid voor wijsheid en wetenschap, vers 29-34.  
 
 Zo groot was Salomo maar onze Here Jezus was groter dan hij, Mattheüs 12:42,23. hoewel Hij de gestaltenis eens dienstknechts had aangenomen. Want Goddelijkheid in haar diepste vernedering overtreft zeer verre koninklijke waardigheid in haar grootste verheffing. 
 

@@ -98,7 +98,7 @@ III. Aandoenlijk klaagt Elisa over het verlies van deze grote profeet, maar voeg
 a. Hij zelf had de leidsman van zijn jeugd verloren, Mijn vader, mijn vader, hij beschouwde zijn eigen toestand als van een vaderloos kind, dat op de wereld is geworpen en hierover treurt hij. Toen Christus Zijn discipelen verliet, heeft Hij hen geen wezen gelaten, Johannes 14:18, maar Elia moet dit wel.
 b. Het volk had zijn beste wachter verloren, hij was de wagen Israëls en zijn ruiteren. Hij had hen allen naar de hemel willen brengen, zoals in deze wagen, en het was hun schuld, dat hij het niet gekund heeft. Zij gebruikten geen wagens en paarden in hun oorlogen, maar door zijn raadgevingen, zijn bestraffingen en zijn gebeden, was Elia hun meer dan de sterkste macht van wagens en paarden, en weerde hij Gods oordelen van hen af. Zijn heengaan was als de algehele nederlaag van een leger, een onherstelbaar verlies. Het zou ons beter zijn al onze krijgslieden te hebben verloren dan deze man Gods. 
 
-## 2Koningen 2:13-18 
+## 2 Koningen 2:13-18 
 
 Wij hebben hier wat er terstond na de wegneming van Elia heeft plaatsgehad.
 

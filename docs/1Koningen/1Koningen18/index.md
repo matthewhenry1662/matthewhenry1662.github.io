@@ -57,7 +57,7 @@ III. Zijn onderhoud met geheel Israël op de berg Karmel voor een openbaar onder
 IV. De terdoodbrenging van de Baälsprofeten, vers 40.  
 V. De zegen van de regen weergekeerd op het woord van Elia, vers 41-46. Het is een hoofdstuk, waarin zeer veel opmerkelijks voorkomt.      
 
-## Koningen 18:1-16 
+## 1 Koningen 18:1-16 
 
 In deze verzen vinden wij de treurige toestand van Israël in die tijd, en dat wel in tweeërlei opzicht.
 

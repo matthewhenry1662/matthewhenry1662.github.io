@@ -28,7 +28,7 @@
 
 ## Inleiding
 
-Wij worden nu geroepen om acht te geven op de openbare aangelegenheden van Israël, waarin wij Elisa betrokken zullen zien. Hier is: 
+Wij worden nu geroepen om acht te geven op de openbare aangelegenheden van Israël, waarin wij Elisa betrokken zullen zien. Hier is:  
 I. Het algemene karakter van Joram, koning van Israël, vers 1-3.  
 II. Een oorlog met Moab, die Joram en zijn bondgenoten hebben ondernomen, vers 4-8.  
 III. De verlegenheid, waarin de geallieerde legers in hun veldtocht tegen Moab geraakt zijn, in welke benauwdheid zij Elisa raadpleegden, met het antwoord des vredes, dat hij hun gaf, vers 9-19.  

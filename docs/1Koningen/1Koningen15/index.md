@@ -33,6 +33,8 @@
 33. In het derde jaar van Asa, koning van Juda, werd Baesa, de zoon van Ahia, koning over gans Israël, te Thirza, en regeerde vier en twintig jaren. 
 34. En hij deed wat kwaad was in de ogen des HEEREN, en wandelde in de weg van Jerobeam, en in zijn zonde, waarmede hij Israël had doen zondigen. 
 
+## Inleiding
+
 In dit hoofdstuk hebben wij een uittreksel van de geschiedenis:  
 I. Van twee van de koningen van Juda, Abiam, de dagen van wiens regering weinig en kwaad waren, vers 1-8, en Asa, die goed en lang geregeerd heeft, vers 9-24.  
 II. Van twee van de koningen van Israël, Nadab, de zoon van Jerobeam, en Baesa, de verderver van het huis van Jerobeam, vers 25-34.  

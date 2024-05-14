@@ -148,7 +148,7 @@ Wij hebben hier het besluit van de geschiedenis van Salomo, en daarin:
 
 2\. Een opgave van de jaren van zijn regering, vers 42. Hij regeerde te Jeruzalem (niet zoals zijn vader, een deel van zijn tijd te Hebron en een ander deel te Jeruzalem) over geheel Israël (niet zoals zijn zoon en zijn vader in het begin van zijn tijd, alleen over Juda) veertig jaren. Zijn regering was even lang als die van zijn vader, maar hij heeft niet even lang geleefd. De zonde heeft zijn dagen verkort.
 
-3. Zijn dood en begrafenis, en zijn opvolger, vers 43.
+3\. Zijn dood en begrafenis, en zijn opvolger, vers 43.
 a. Hij volgde zijn vaderen naar het graf, ontsliep met hen, en werd begraven in Davids begraafplaats, met eer ongetwijfeld.
 b. Zijn zoon volgde hem op op de troon. Aldus worden de graven gevuld met de geslachten, die heengaan, en worden huizen gevuld met hen, die opkomen. Gelijk het graf roept: "Geef, geef", zo is land nooit verloren uit gebrek aan een erfgenaam. 
 

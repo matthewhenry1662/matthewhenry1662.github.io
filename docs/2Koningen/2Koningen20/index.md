@@ -22,7 +22,7 @@
 
 ## Inleiding
 
-In dit hoofdstuk hebben wij: 
+In dit hoofdstuk hebben wij:  
 I. Hizkia’s ziekte en zijn herstel in verhoring van gebed, in vervulling van een belofte, in het gebruik van middelen, en bevestigd door een teken, vers 1-11.  
 II. Hiskia’s zonde en zijn herstel daarvan vers 12-19. In die beide aangelegenheden is Jesaja Gods boodschapper tot hem geweest.  
 III. Het einde van zijn regering, vers 20, 21.  

@@ -37,14 +37,14 @@
 
 ## Inleiding
 
-In dit hoofdstuk hebben wij: 
-I. Een verder bericht van Jehu’s volvoering van zijn opdracht. Hij roeide uit: 
-1\. Al de zonen van Achab, vers 1-10.
-2\. Alle bloedverwanten van Achab, vers 11-14, 17.
-3\. Achabs afgoderij, van zijn ijver daartegen nam hij Jonadab tot getuige, vers 15, 16, hij riep al de aanbidders van Baäl op tot een vergadering, vers 18-23, en doodde hen allen, vers 24, 25, en toen schafte hij die afgoderij af, vers 26-28.
-II. Een kort bericht van de administratie van zijn regering.
-1\. De oude afgoderij van Israël bleef in stand namelijk de aanbidding van de kalveren, vers 29-31.
-2\. Dit bracht Gods oordelen over hen door Hazaël, en daarmee eindigt zijn regering, vers 32-36. 
+In dit hoofdstuk hebben wij:  
+I. Een verder bericht van Jehu’s volvoering van zijn opdracht. Hij roeide uit:  
+1\. Al de zonen van Achab, vers 1-10.  
+2\. Alle bloedverwanten van Achab, vers 11-14, 17.  
+3\. Achabs afgoderij, van zijn ijver daartegen nam hij Jonadab tot getuige, vers 15, 16, hij riep al de aanbidders van Baäl op tot een vergadering, vers 18-23, en doodde hen allen, vers 24, 25, en toen schafte hij die afgoderij af, vers 26-28.  
+II. Een kort bericht van de administratie van zijn regering.  
+1\. De oude afgoderij van Israël bleef in stand namelijk de aanbidding van de kalveren, vers 29-31.  
+2\. Dit bracht Gods oordelen over hen door Hazaël, en daarmee eindigt zijn regering, vers 32-36.  
 
 ## 2 Koningen 10:1-14
 
