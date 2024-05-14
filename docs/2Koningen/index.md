@@ -9,5 +9,4 @@ IV. De regering van onderscheidene koningen, beide van Juda en van Israël, Hoof
 V. De gevangenschap der tien stammen, Hoofdstuk 17.   
 VI. De goede en glorierijke regering van Hizkia, Hoofdstuk 18-20.  
 VII. Manasse’s goddeloze regering, en de goede regering van Josia, Hoofdstuk 21-23.  
-VIII. De verwoesting van Jeruzalem door de koning van Babel, Hoofdstuk 24, 25. Deze geschiedenis bevestigt de opmerking van Salomo: Gerechtigheid verhoogt een volk, maar de zonde is een schandvlek der natiën.   
-
+VIII. De verwoesting van Jeruzalem door de koning van Babel, Hoofdstuk 24, 25. Deze geschiedenis bevestigt de opmerking van Salomo:  Gerechtigheid verhoogt een volk, maar de zonde is een schandvlek der natiën.  
