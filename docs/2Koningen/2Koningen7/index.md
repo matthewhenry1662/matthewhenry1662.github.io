@@ -26,7 +26,7 @@ I. Zij wordt voorzegd door Elisa, en een ongelovige hoofdman wordt buitengeslote
 II. Zij komt:   
 1\. Door een onverklaarbare verschrikking, die God over de Syriërs deed komen, vers 6 die hen in allerijl van voor de stad deed wegtrekken vers 7.  
 2\. Dit wordt gelukkig ontdekt door vier melaatsen, vers 3-5, die van hun ontdekking bericht deden toekomen aan het hof, vers 8-11. De voorzichtige proefneming van de waarheid van het bericht door de koning, vers 12-15.   
-Eindelijk. De uitkomst beantwoordde aan de voorzegging, zowel in de plotselinge overvloed, vers 16, als in de dood van de ongelovige hoofdman, vers 17 20, want geen woord van God zal ter aarde vallen.  
+Eindelijk. De uitkomst beantwoordde aan de voorzegging, zowel in de plotselinge overvloed, vers 16, als in de dood van de ongelovige hoofdman, vers 17-20, want geen woord van God zal ter aarde vallen.  
 
 ## 2 Koningen 7:1-2 
 

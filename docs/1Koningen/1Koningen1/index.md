@@ -88,7 +88,7 @@ b. Hij wist tot zijn zijde over te halen geen minderen dan Joab de krijgsoverste
 
 c. Hij bereidde een groot feestmaal, vers 9, bij de fontein Rogel, niet ver van Jeruzalem, zijn gasten waren de zonen des konings en de dienaren des konings, die hij onthaalde en vleide om hen tot zijn partij over te halen-maar Salomo was niet genodigd, hetzij omdat hij hem verachtte of omdat hij aan hem wanhoopte, vers 10. Zij, die hun buik dienen en de belangen willen voorstaan van hen, die hen onthalen, aan welke zijde zij ook zijn, zullen een gemakkelijke prooi wezen voor verleiders, Romeinen 16:18. Sommigen denken dat Adonia deze schapen en ossen en gemest vee slachtte tot offeranden en dat het een Godsdienstig feestmaal was, hetwelk hij aanrichtte, zijn overweldiging beginnende met een vertoon van vroomheid zoals Absalom onder schijn van een gelofte te betalen, 2 Samuël 15:7, hetgeen hij onder meer schijn van waarheid doen kon, nu hij de hogepriester zelf aan zijn zijde had. Het is te betreuren dat er ooit aanleiding gegeven werd om te zeggen: "In nomine Domine incipit omne malum- In de naam des Heeren begint alle kwaad," en dat oefeningen van de Godsvrucht tot dekmantel dienden van onrechtvaardige handelingen. 
 
-## Koningen 1:11-31 
+## 1 Koningen 1:11-31 
 
 Wij hebben hier de krachtdadige pogingen, gedaan door Nathan en Bathseba om de bekrachtiging te verkrijgen van Salomo’s opvolging, en de overweldiging van Adonia teniet te doen.
 

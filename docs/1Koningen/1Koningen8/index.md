@@ -73,7 +73,8 @@ I. De vertegenwoordigers van geheel Israël werden bijeengeroepen, vers 1, 2, om
 II. De priesters brachten de ark in het heilige van de heiligen, en stelden haar aldaar, vers 3-9.  
 III. God nam er bezit van door een wolk, vers 10. 11.  
 IV. Onder dankerkentenis aan God geeft Salomo het volk inlichting nopens de gelegenheid voor welke zij bijeengeroepen waren, vers 12-21.  
-V. In een lang gebed beveelt hij aan de genadige aanneming van God al de gebeden, die in of met het aangezicht naar deze plaats gedaan zullen worden, vers 22-53. VI. Hij zond de vergadering heen met een zegen en een vermaning, vers 54-91.  
+V. In een lang gebed beveelt hij aan de genadige aanneming van God al de gebeden, die in of met het aangezicht naar deze plaats gedaan zullen worden, vers 22-53.  
+VI. Hij zond de vergadering heen met een zegen en een vermaning, vers 54-91.  
 VII. Hij offerde zeer veel offeranden, op welke hij en het volk het feestmaal hielden, en zo scheidden zij met grote tevredenheid, vers 62-66. Dat waren Israëls gouden dagen, dagen van de Zoon des mensen in type.  
 
 ## 1 Koningen 8:1-11 
