@@ -61,3 +61,8 @@ b. Zijn zonen werden bevorderd tot posten van vertrouwen in het heiligdom. Zij h
 3\. Deze schatten hadden schatbewaarders, personen, die er over gesteld waren, vers 20, 26, wier werk het was ze te bewaren, opdat mot noch roest ze zou verderven, en geen dieven zouden doorbreken om ze te stelen, ze uit te geven naar het nodig was, en wèl toe te zien dat zij niet verspild, verduisterd, of tot gewoon gebruik vervreemd werden, en waarschijnlijk hebben zij boek gehouden van alles wat inkwam, en hoe het uitgegeven werd. 
 
 
+## 1 Kronieken 26:29-32
+
+!!! note 
+
+    Dit gedeelte mist in de digitale bron bestanden en zal later vanuit de boeken worden overgenomen en toegevoegd.

@@ -29,13 +29,15 @@
 29. De geschiedenissen nu van de koning David, de eerste en de laatste, ziet, die zijn geschreven in de geschiedenissen van Samuël, de ziener, en in de geschiedenissen van de profeet Nathan, en in de geschiedenissen van Gad, de ziener; 
 30. Met al zijn koninkrijk, en zijn macht, en de tijden, die over hem verlopen zijn, en over Israël, en over al de koninkrijken der landen. 
 
+## Inleiding
+
 David had aan Salomo gezegd wat hij hem te zeggen had, maar aan de vergadering, aan de gemeente, had hij nog iets meer te zeggen, eer hij van haar scheiden gaat.
 
-I. Hij dringt er bij hen op aan om naar vermogen bij te dragen voor de bouw en de meubilering van de tempel, vers 1-5.
-II. Dienovereenkomstig hebben zij met grote milddadigheid hun geschenken gegeven, vers 6-9.
-III. David heeft bij die gelegenheid plechtige gebeden en dankzegging opgezonden tot God, vers 10- 20, met offers, vers 21.
-IV. Salomo werd hierop met groot vreugdebetoon en veel pracht en statie op de troon geplaatst, vers 22-23.
-V. Spoedig daarna had David zijn loop voleindigd, vers 26-30. En het is moeilijk te zeggen welke zon, de ondergaande of de opgaande, het helderst schijnt. 
+I. Hij dringt er bij hen op aan om naar vermogen bij te dragen voor de bouw en de meubilering van de tempel, vers 1-5.  
+II. Dienovereenkomstig hebben zij met grote milddadigheid hun geschenken gegeven, vers 6-9.  
+III. David heeft bij die gelegenheid plechtige gebeden en dankzegging opgezonden tot God, vers 10- 20, met offers, vers 21.  
+IV. Salomo werd hierop met groot vreugdebetoon en veel pracht en statie op de troon geplaatst, vers 22-23.  
+V. Spoedig daarna had David zijn loop voleindigd, vers 26-30. En het is moeilijk te zeggen welke zon, de ondergaande of de opgaande, het helderst schijnt.  
 
 ## 1 Kronieken 29:1-9
 

@@ -27,7 +27,8 @@
 27. Het twintigste voor Eliatha; zijn zonen en zijn broederen; twaalf. 
 28. Het een en twintigste voor Hothir; zijn zonen en zijn broederen, twaalf. 
 29. Het twee en twintigste voor Giddalti; zijn zonen en zijn broederen, twaalf. 
-30. Het drie en twintigste voor Mahazioth; zijn zonen en zijn broederen, twaalf. 31 Het vier en twintigste voor Romamthi-ezer; zijn zonen en zijn broederen, twaalf.
+30. Het drie en twintigste voor Mahazioth; zijn zonen en zijn broederen, twaalf. 
+31. Het vier en twintigste voor Romamthi-ezer; zijn zonen en zijn broederen, twaalf.
 
 ## Inleiding
 

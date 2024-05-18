@@ -32,17 +32,23 @@ III. De overblijvenden van zijn geslacht in en na de ballingschap, vers 17-24. U
 
 ## 1 Kronieken 3:1-9 
 
-Wij hadden een bericht van Davids zonen in 2 Samuël 3:2 vv. en 5:14 vervolg.
-1\. Hij had vele zonen, en zeker heeft hij geschreven wat hij dacht: "Welgelukzalig is de man, die zijn pijlkoker met deze gevuld heeft", Psalm 127:5.
-2\. Sommigen van hen zijn een smart voor hem geweest, zoals Amnon, Absalom en Adonia. En van geen hunner lezen wij dat hij in de voetstappen van zijn vader heeft gewandeld, behalve Salomo, die echter ver bij hem achterbleef.
+Wij hadden een bericht van Davids zonen in 2 Samuël 3:2 vv. en 5:14 vervolg.  
+
+1\. Hij had vele zonen, en zeker heeft hij geschreven wat hij dacht: "Welgelukzalig is de man, die zijn pijlkoker met deze gevuld heeft", Psalm 127:5.  
+
+2\. Sommigen van hen zijn een smart voor hem geweest, zoals Amnon, Absalom en Adonia. En van geen hunner lezen wij dat hij in de voetstappen van zijn vader heeft gewandeld, behalve Salomo, die echter ver bij hem achterbleef.  
+
 3\. Een hunner, die Bathseba hem gebaard heeft, noemde hij Nathan, waarschijnlijk ter ere van Nathan, de profeet, die hem bestraft heeft voor zijn zonde in deze zaak, en het middel is geweest om hem tot berouw er over te brengen. Hij schijnt er hem te meer om liefgehad te hebben, zolang als hij leefde. Het is verstandig om diegenen onze beste vrienden te achten, die getrouw jegens ons zijn. Van deze zoon van David is onze Heere afgestemd, zoals blijkt uit Lukas 3:31.
+
 4\. Hier zijn twee Elisama’s en twee Elifelets, vers 6, 8. Waarschijnlijk zijn de eerste twee gestorven, en heeft David twee anderen, die hij later kreeg, naar hun namen genoemd, hetgeen hij niet gedaan zou hebben indien daar, gelijk sommigen wanen, een kwade voorbeduidenis in is.
 
 5\. David had vele bijvrouwen, maar haar kinderen worden niet met name genoemd, als zijnde deze eer niet waardig, vers 9, te meer omdat de bijvrouwen trouweloos met David gehandeld hebben in de zaak van Absalom.
 
 6\. Uit al de zonen van David werd Salomo gekozen om hem op te volgen, misschien niet om zijn persoonlijke verdiensten-zijn wijsheid was Gods gave-maar: "Vader, alzo is geweest het welbehagen voor U". 
 
-## 1 Kronieken 3:10-24 Daar David negentien zonen had, kunnen wij veronderstellen dat vele edele geslachten in Israël uit hen zijn voortgekomen, van wie wij nooit in de geschiedenis hebben kunnen lezen. De Schrift geeft ons hier alleen een bericht van Salomo’s nakomelingen, en in Lukas 3 van die van Nathan. De overigen hadden de eer zonen van David te zijn, maar deze alleen hadden de eer om aan de Messias verwant te wezen. Nathans zonen waren Zijn vaderen als mens de zonen van Salomo Zijn voorgangers als koning. 
+## 1 Kronieken 3:10-24 
+
+Daar David negentien zonen had, kunnen wij veronderstellen dat vele edele geslachten in Israël uit hen zijn voortgekomen, van wie wij nooit in de geschiedenis hebben kunnen lezen. De Schrift geeft ons hier alleen een bericht van Salomo’s nakomelingen, en in Lukas 3 van die van Nathan. De overigen hadden de eer zonen van David te zijn, maar deze alleen hadden de eer om aan de Messias verwant te wezen. Nathans zonen waren Zijn vaderen als mens de zonen van Salomo Zijn voorgangers als koning. 
 Wij hebben hier: 
 
 1\. De grote en beroemde namen, door welke de linie van David voortgaat tot aan de ballingschap, de koningen van Juda, in rechte lijn van opvolging, van wie wij de geschiedenis uitvoerig gehad hebben in de twee boeken van de Koningen, en wederom zullen hebben in het tweede boek van de Kronieken. Zelden is een kroon in rechte lijn door zeventien opvolgingen van vader op zoon overgegaan zoals hier. Dit was de beloning van Davids Godsvrucht. Even voor de ballingschap was de lijnrechte opvolging afgebroken, en ging de kroon van de ene broeder over op de andere broeder, en van een neef op een oom, wat een voorteken was van de verduistering van de eer van dat huis.

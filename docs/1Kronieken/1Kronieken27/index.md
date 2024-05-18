@@ -30,7 +30,8 @@
 30. En over de kemelen was Obil, de Ismaeliet; en over de ezelinnen was Jechdeja, de Meronothiet. 
 31. En over het kleine vee was Jaziz, de Hageriet. Alle dezen waren oversten over de have, die de koning David had. 
 32. En Jonathan, Davids oom, was raad, een verstandig man; hij was ook schrijver; Jehiel nu, de zoon van Hachmoni, was bij de zonen des konings. 
-33. En Achitofel was raad des konings; en Husai, de Archiet, was des konings vriend. 34 En na Achitofel was Jojada, de zoon van Benaja, en Abjathar; maar Joab was des konings krijgsoverste. 
+33. En Achitofel was raad des konings; en Husai, de Archiet, was des konings vriend. 
+34. En na Achitofel was Jojada, de zoon van Benaja, en Abjathar; maar Joab was des konings krijgsoverste. 
 
 ## Inleiding
 
