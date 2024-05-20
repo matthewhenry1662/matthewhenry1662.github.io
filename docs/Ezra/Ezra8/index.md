@@ -86,3 +86,9 @@ Ezra zegt hun waarom hij die dingen in hun handen stelde, vers 28. Gij zijt heil
 b. De grote nauwkeurigheid, waarmee hij dit aanvertrouwde pand in hun handen legt hij woog hun het zilver en het goud en de vaten vers 25, omdat hij verwachtte het in gewicht van hen terug te ontvangen. In alle toevertrouwde zaken, maar inzonderheid in heilige zaken, behoren wij stipt en nauwkeurig te zijn, en van beide zijden omtrent de juiste waarde van de dingen ingelicht zijn. In Zerubbabels tijd werden de vaten overgeleverd bij getallen, hier bij gewicht, opdat allen overgeleverd zouden worden en het spoedig zou worden ontdekt zo er iets aan ontbrak. Hiermede wordt te kennen gegeven dat zij, aan wie heilige dingen worden toevertrouwd (en dat zijn alle uitdelers van de verborgenheden Gods) goed weten wat zij hebben ontvangen en wederom moeten overleveren, daar zij er weldra rekenschap van zullen hebben af te leggen, opdat zij er getrouw in zullen zijn en er met blijdschap verantwoording van kunnen doen.
 
 c. De last, die hij hun gaf met deze schatten, vers 29. "Waakt en bewaart het, dat er niets van verloren raakt of gestolen wordt of met andere zaken wordt vermengd, houdt het bij elkaar, houdt het afzonderlijk, houdt het veilig, totdat gij het alles afweegt in de tempel voor het aangezicht van de grote mannen aldaar." Hiermede gaf hij hun te kennen van hoeveel belang het voor hen was om zorgzaam en getrouw te wezen, en hoezeer het hun tot eer zou strekken om aldus getrouw bevonden te worden. Zo heeft Paulus, toen hij Timotheus de Evangelieschat heeft overgegeven, hem bevolen die te bewaren tot aan de verschijning voor Hem om rekenschap te geven van het pand, dat hem werd toevertrouwd, wanneer zijn getrouwheid zijn kroon zal zijn.
+
+Ezra 8:31-36
+
+!!! note 
+
+    Dit gedeelte mist in de digitale bron bestanden en zal later vanuit de boeken worden overgenomen en toegevoegd.
