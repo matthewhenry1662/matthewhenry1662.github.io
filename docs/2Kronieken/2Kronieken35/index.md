@@ -17,7 +17,7 @@
 17. En de kinderen Israëls, die er gevonden werden, hielden het pascha ter zelfder tijd, en het feest der ongezuurde broden, zeven dagen. 
 18. Daar was ook geen pascha als dat in Israël gehouden, van de dagen van Samuël, de profeet, af; en geen koningen van Israël hadden zulk een pascha gehouden, gelijk dat Josia hield met de priesters en de Levieten, en gans Juda en Israël, dat er gevonden werd, en de inwoners van Jeruzalem. 
 19. In het achttiende jaar van het koninkrijk van Josia, werd dit pascha gehouden. 
-20 Na dit alles, toen Josia het huis toebereid had, toog Necho, de koning van Egypte, op, om te krijgen tegen Karchemis, aan de Frath; en Josia toog uit hem tegemoet. 
+20. Na dit alles, toen Josia het huis toebereid had, toog Necho, de koning van Egypte, op, om te krijgen tegen Karchemis, aan de Frath; en Josia toog uit hem tegemoet. 
 21. Toen zond hij boden tot hem, zeggende: Wat heb ik met u te doen, gij, koning van Juda? Wat u aangaat, ik ben heden tegen u niet, maar tegen een huis, dat oorlog voert tegen mij; en God heeft gezegd, dat ik mij haasten zou; houd u af van God, Die met mij is, opdat Hij u niet verderve. 
 22. Doch Josia keerde zijn aangezicht niet van hem; maar hij verstelde zich, om tegen hem te strijden, en hoorde niet naar de woorden van Necho uit de mond van God; maar hij kwam om te strijden in het dal Megiddo. 
 23. En de schutters schoten de koning Josia. Toen zeide de koning tot zijn knechten: Voert mij weg, want ik ben zeer gewond. 

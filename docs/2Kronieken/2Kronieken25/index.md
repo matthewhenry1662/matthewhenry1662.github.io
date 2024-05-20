@@ -79,3 +79,8 @@ Ik merk dat God besloten heeft u te verderven, het is een duidelijk teken, dat g
 
 
  
+## 2 Kronieken 25:17-28
+
+!!! note 
+
+    Dit gedeelte mist in de digitale bron bestanden en zal later vanuit de boeken worden overgenomen en toegevoegd.

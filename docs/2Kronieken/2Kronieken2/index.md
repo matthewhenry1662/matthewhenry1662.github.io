@@ -20,6 +20,7 @@
 ## Inleiding
 
 Salomo’s koophandel, waarvan wij aan het einde van het vorige hoofdstuk gelezen hebben, en de aanmoediging, die hij gaf aan koopman en fabrikant waren zeer prijzenswaardig. Maar bouwen was het werk, waartoe hij bestemd was, en daaraan wijdt hij zich hier. Wij hebben nu:  
+
 I. Salomo’s besluit om de tempel en een koninklijk paleis te bouwen en zijn aanstelling van werklieden er voor, vers 1, 2-17, 18. 
 II. Zijn verzoek aan Huram, koning van Tyrus, om hem van werklieden en materialen te voorzien vers 3-10.  
 III. Hurams vriendelijk antwoord en bereidwillig toestaan van dat verzoek, vers 11-16.  

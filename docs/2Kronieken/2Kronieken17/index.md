@@ -32,7 +32,7 @@ V. De grote sterkte van zijn rijk, zowel in garnizoenen als in een staande krijg
 
 ## 2 Kronieken 17:1-9 
 
-Hier zien wij betreffende Jósafath: 
+Hier zien wij betreffende Jósafath:  
 I. Welk een wijs man hij was. Zodra hij aan de regering kwam, sterkte hij zich tegen Israël, vers 1. De troon van Israël werd nu sedert drie jaren ingenomen door Achab, een werkzaam, krijgshaftig vorst, wiens krachtig begin samenviel met het verval van Asa’s einde en zo is het waarschijnlijk dat het rijk van Israël in de laatste tijd veld gewonnen had op het rijk van Juda, en begon daar geducht voor te worden, zodat het eerste wat Jósafath te doen had, was zich van zijn kant te versterken en de toenemende grootheid van de koning van Israël te fnuiken, wat hij deed zonder bloedvergieten, maar toch met zo goed gevolg, dat Achab spoedig zich met hem zocht te verbinden, zover was het van hem om hem onrust te bezorgen. Maar hij bleek gevaarlijker als vriend dan hij als vijand geweest zou zijn. Jósafath sterkte zich, niet om aanvallenderwijs tegen Israël te werk te gaan, maar slechts om zich in het zijne te handhaven, wat hij deed door zijn grenssteden te versterker en talrijker bezettingen te leggen in de steden van Efraïm die hij in bezit had, dan er vroeger in geweest waren, vers 2. Hij heeft zich niet gesterkt, zoals zijn vader, door een verbond met de koning van Syrië, maar door goede en eerlijke maatregelen, op welke hij de zegen van God kon verwachten, en in welke hij op God vertrouwde.
 
 II. Welk een goed en Godvruchtig man hij was. Er wordt hem hier een voortreffelijk en zeer opmerkelijk karakter toegeschreven.
