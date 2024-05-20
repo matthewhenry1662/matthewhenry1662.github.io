@@ -30,7 +30,8 @@ I. Hun vijanden smaadden en bespotten de onderneming, maar op hun beschimpingen 
 II. Zij vormden een bloeddorstig plan tegen hen, om hen met geweld van wapenen in hun werk te hinderen, vers 7, 8, 10 12. Om hiertegen te waken, heeft Nehémia gebeden, vers 9, wachten uitgezet, vers 13, en hen aangemoedigd om te strijden, vers 14 waardoor het plan verijdeld werd, vers 15, en het werk werd voortgezet met alle nodige voorzorg tegen overrompeling, vers 16-23.  
 In dit alles toonde Nehémia zich als een man van groot beleid en moed, zowel als van Godsvrucht.
 
-Nehémia 4:1-6 
+## Nehémia 4:1-6 
+
 I. Hier is de boosaardige spot, het smalen van Sanballat en Tobia op de Joden omdat zij bezig waren de muur rondom Jeruzalem te bouwen. Weldra weerklonk het gehele land ervan, er kwam bericht van te Samaria, dat nest van vijanden van de Joden en van hun voorspoed, en hier wordt ons gezegd hoe zij de tijding ontvingen.
 
 1\. In hun hart. Zij ontstaken en werden zeer toornig wegens deze onderneming, vers 1. Het ergerde hen dat Nehémia kwam om wat goeds te zoeken voor de kinderen Israëls, Hoofdstuk 2:10, maar toen zij hoorden van deze grote onderneming voor hun welzijn, verloren zij alle geduld. Tot nu toe hadden zij zich gevleid met de gedachte dat zolang Jeruzalem zonder muren was, zij het gemakkelijk konden overmeesteren zodra het hun zou behagen, maar als die stad ommuurd was, dan zal zij niet alleen tegen hen beschut zijn, maar langzamerhand geducht voor hen worden. De sterkte en veiligheid van de kerk zijn de kwelling en ergernis van haar vijanden.

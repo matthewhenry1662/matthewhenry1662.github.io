@@ -44,7 +44,7 @@ In dit hoofdstuk hebben wij een bijzonder bericht van het verbond, waartoe aan h
 
 I. De namen van hen, die er hun handtekening en zegel op gezet hadden, vers 1-27.  
 II. Een bericht van hen, die er hun instemming mee betuigd hebben, vers 28, 29.   
-III. Het verbond zelf en de artikelen ervan in het algemeen, dat zij Gods geboden zullen houden, vers 29, in het bijzonder, dat zij geen heidenen zullen huwen, vers 30, de sabbat niet zullen ontheiligen, niet streng zullen zijn met hun schuldenaars, vers 31, en nauwgezet hun kerkelijke belastingen zullen opbrengen ter onderhouding van de tempeldienst, waaraan zij beloven getrouw te zullen blijven, vers 32 39.  
+III. Het verbond zelf en de artikelen ervan in het algemeen, dat zij Gods geboden zullen houden, vers 29, in het bijzonder, dat zij geen heidenen zullen huwen, vers 30, de sabbat niet zullen ontheiligen, niet streng zullen zijn met hun schuldenaars, vers 31, en nauwgezet hun kerkelijke belastingen zullen opbrengen ter onderhouding van de tempeldienst, waaraan zij beloven getrouw te zullen blijven, vers 32-39.  
 
 ## Nehémia 10:1-31 
 
