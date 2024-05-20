@@ -10,10 +10,3 @@ I. Er was nu een bloeiende gemeente te Colosse, die vooraan stond en beroemd was
 II. Ofschoon Paulus deze gemeente niet gesticht had, verzuimde hij haar niet; en hij maakt in het schrijven van brieven geen onderscheid tussen haar en de andere gemeenten. De Colossenzen, die bekeerd waren door den dienst van Epafras, waren hem even dierbaar als de Filippensen en anderen, die door zijn eigen dienst toegebracht waren; en hij stelde in hun welzijn evenveel belang.
 Daardoor legde hij eer op een lagerstaande dienaar, en leert ons niet zelfzuchtig te zijn, en niet te menen dat alleen ons ere toekomt. Wij leren door zijn voorbeeld, dat wij het niet vernederend moeten achten nat te maken wat anderen geplant hebben, of te bouwen op een fondament, dat een ander gelegd heeft. En hijzelf als een wijs bouwmeester, legde het fondament en een ander bouwde daarop, 1 Corinthiërs 3:10.
 
-
-
-
-
-
-
- 
