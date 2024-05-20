@@ -31,6 +31,7 @@
 ## Inleiding
 
 De apostel in dit hoofdstuk: 
+
 I. Bestraft de Galatiërs over hun uitzinnigheid, omdat ze zich laten afleiden van het geloof des Evangelies, en tracht door verscheidene voorbeelden hun dat duidelijk te maken.  
 II. Hij onderzoekt de leerstelling, welke hij hun verwijt te hebben losgelaten, namelijk de rechtvaardigmaking door het geloof zonder de werken der wet, en bewijst die:  
 1\. Door het voorbeeld van Abrahams rechtvaardigmaking;  
