@@ -1283,10 +1283,10 @@ nav:
     - 'Filipenzen 4': 'Filipenzen/Filipenzen4/index.md'
   - 'Kolossensen': 
     - 'Kolossensen': 'Kolossensen/index.md'
-#    - 'Kolossensen 1': 'Kolossensen/Kolossensen1/index.md'
-#    - 'Kolossensen 2': 'Kolossensen/Kolossensen2/index.md'
-#    - 'Kolossensen 3': 'Kolossensen/Kolossensen3/index.md'
-#    - 'Kolossensen 4': 'Kolossensen/Kolossensen4/index.md'
+    - 'Kolossensen 1': 'Kolossensen/Kolossensen1/index.md'
+    - 'Kolossensen 2': 'Kolossensen/Kolossensen2/index.md'
+    - 'Kolossensen 3': 'Kolossensen/Kolossensen3/index.md'
+    - 'Kolossensen 4': 'Kolossensen/Kolossensen4/index.md'
   - '1 Thessalonicensen': 
     - '1 Thessalonicensen': '1Thessalonicensen/index.md'
 #    - '1 Thessalonicensen 1': '1Thessalonicensen/1Thessalonicensen1/index.md'
