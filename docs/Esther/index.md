@@ -8,8 +8,8 @@ De bijzonderheden zijn niet alleen verrassend en zeer onderhoudend, maar ook sti
 I. Hoe Esther koningin is geworden, en Mordechaï groot werd aan het hof, zij waren het middel voor de bestemde verlossing, Hoofdstuk 1, 2.  
 II. Naar aanleiding van wat, en door welke kunstenarijen Haman, de Amalekiet, een order verkreeg voor de ombrenging van al de Joden, Hoofdstuk 3.  
 III. De grote benauwdheid, waarin de Joden en inzonderheid hun voorstanders verkeerden, Hoofdstuk 4.  
-IV. Het verijdelen van Hamans bijzonder complot tegen het leven van Mordechaï, Hfd 5-7.  
-V. Het verijdelen van zijn algemeen complot tegen de Joden, Hoofdstuk 8.   
-VI. De zorg, die gedragen werd om dit in eeuwige gedachtenis te houden, Hoofdstuk g en 10.  
+IV. Het verijdelen van Hamans bijzonder complot tegen het leven van Mordechaï, Hoofdstuk 5-7.  
+V. Het verijdelen van zijn algemeen complot tegen de Joden, Hoofdstuk 8.  
+VI. De zorg, die gedragen werd om dit in eeuwige gedachtenis te houden, Hoofdstuk 9, 10.  
 
 De gehele geschiedenis bevestigt de opmerking van de psalmist, Psalm 37:12, 13. De goddeloze bedenkt listige aanslagen tegen de rechtvaardige, en hij knarst over hem met zijne tanden. De Heere belacht hem, want Hij ziet dat zijn dag komt.  
