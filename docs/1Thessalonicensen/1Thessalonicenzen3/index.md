@@ -1,6 +1,23 @@
+1. DAAROM, deze begeerte niet langer kunnende verdragen, hebben wij gaarne willen te Athene alleen gelaten worden,
+2. En hebben gezonden Timótheüs, onzen broeder, en Gods dienaar, en onzen medearbeider in het Evangelie van Christus, om u te versterken en u te vermanen van uw geloof,
+3. Opdat niemand bewogen worde in deze verdrukkingen; want gij weet zelven dat wij hiertoe gesteld zijn.
+4. Want ook toen wij bij u waren, voorzeiden wij u, dat wij zouden verdrukt worden, gelijk ook geschied is, en gij weet het.
+5. Daarom ook, deze begeerte niet langer kunnende verdragen, heb ik hem gezonden om uw geloof te verstaan, of niet misschien de verzoeker u zou verzocht hebben en onze arbeid ijdel zou wezen.
+6. Maar als Timótheüs nu van ulieden tot ons gekomen was, en ons de goede boodschap gebracht had van uw geloof en liefde, en dat gij altijd goede gedachtenis van ons hebt, zeer begerig zijnde om ons te zien, gelijk wij ook om ulieden,
+7. Zo zijn wij daarom, broeders, over u in al onze verdrukking en nood vertroost geworden door uw geloof;
+8. Want nu leven wij, indien gij vast staat in den Heere.
+9. Want wat dankzegging kunnen wij Gode tot vergelding wedergeven voor u, vanwege al de blijdschap waarmede wij ons om uwentwil verblijden voor onzen God?
+10. Nacht en dag zeer overvloediglijk biddende om uw aangezicht te mogen zien, en te volmaken hetgeen aan uw geloof ontbreekt.
+11. Doch onze God en Vader Zelf, en onze Heere Jezus Christus, richte onzen weg tot u.
+12. En de Heere vermeerdere u en make u overvloedig in de liefde jegens elkander en jegens allen, gelijk wij ook zijn jegens u;
+13. Opdat Hij uw harten versterke, om onberispelijk te zijn in heiligmaking voor onzen God en Vader, in de toekomst van onzen Heere Jezus Christus met al Zijn heiligen.
+
+## Inleiding
+
 In dit hoofdstuk geeft de apostel verder bewijs van zijn liefde voor de Thessalonicenzen, vermeldende dat hij Timotheüs tot hen gezonden heeft met het doel om hen te sterken, vers 1-5. Hij zegt hun verder hoezeer hij bij de terugkomst van Timotheüs voldaan was geweest over de goede tijdingen hun aangaande, vers 6-10. En besluit met vurig gebed voor hen, vers 11-13. 
 
-1 Thess. 3:1-5 
+## 1 Thessalonicenzen 3:1-5 
+
 In deze woorden geeft de apostel een verslag van zijn zending van Timotheüs aan de Thessalonicenzen. Hoewel hij verhinderd was zelf tot hen te komen, was zijn liefde voor hen zo groot, dat hij niet kon nalaten Timotheüs tot hen te zenden. Alhoewel Timotheüs hem van veel nut was en hij hem niet goed missen kon, was Paulus gewillig, voor hun welzijn, te Athene alleen gelaten te worden. Die dienaren hebben niet de ware liefde voor de stichting en het welzijn hunner gemeenten, die zich daarvoor niet in vele dingen kunnen verloochenen. Merk op: 
 
 I. De getuigenis, die hij aangaande Timotheüs geeft. Timotheüs onze broeder. Elders noemt hij hem zijn zoon, hier noemt hij hem zijn broeder. Timotheüs was jonger dan Paulus; hij had minder gaven en genaden; hij was in lager rang in de bediening, want Paulus was apostel en Timotheüs was evangelist; maar toch noemt Paulus hem broeder. Dat was een teken van des apostels nederigheid, en toont zijn begeerte om Timotheüs te eren en hem in de achting der gemeenten aan te bevelen. Hij noemt hem ook een dienaar Gods. 
@@ -11,7 +28,7 @@ Om u te versterken en u te vermanen van uw geloof, vers 2. Paulus had hen bekeer
 
 III. De beweegreden, die Paulus had om Timotheüs tot dat doel te zenden, was een heilige vrees en jaloersheid, dat niemand hunner van het geloof van Christus mocht bewogen worden, vers 3. Hij wenste dat niemand hunner zou worden bewogen of geschokt, en dat zij niet zouden afvallen van of wankelen in het geloof. 
 
-1. Hij zag daar gevaar voor en vreesde voor de gevolgen. 
+1\. Hij zag daar gevaar voor en vreesde voor de gevolgen. 
 A. Er was gevaar: 
 
 a. Door de verdrukkingen en vervolgingen ter wille van het Evangelie, vers 3. Deze Thessalonicensen zagen welke verdrukkingen de apostelen en verkondigers van het Evangelie overkwamen, en dat zou hen kunnen afschrikken. Ook werden ongetwijfeld alle belijders van het Evangelie en ook dus deze Thessalonicensen verdrukt. 
@@ -20,13 +37,13 @@ b. Door de listen en de boosheid van de verzoeker. De apostel was bevreesd dat m
 
 B. Het gevolg, waarvoor de apostel vreesde, was dat zijn arbeid ijdel zou wezen. En dat zou hij geweest zijn, indien de verzoeker hen verzocht had en voordeel op hen behaald had door hen af te trekken van het geloof. Zij zouden verloren hebben wat zij verkregen hadden, en de apostel zou verloren hebben wat hij gewerkt had. Het is de bedoeling van de duivel om de goede vruchten van de prediking des Evangelies te verhinderen, en wanneer hij de dienaren niet kan beletten hun werk te verrichten, dan zal hij zo mogelijk de gevolgen van hun werk verwoesten. Getrouwe dienaren stellen veel belang in de vruchten van hun werk. Geen hunner arbeidt graag tevergeefs, en de dienaren besteden hun kracht en moeite en tijd niet graag zonder goeden uitslag. 
 
-2. Om dit gevaar te voorkomen, met zijn kwade gevolgen, zegt de apostel hun welke zorg hij nam om hun Timotheüs te zenden. 
+2\. Om dit gevaar te voorkomen, met zijn kwade gevolgen, zegt de apostel hun welke zorg hij nam om hun Timotheüs te zenden. 
 
 A. Om hen te herinneren aan hetgeen hij hun voorzegd had omtrent de verdrukkingen, die hem treffen zouden, vers 4. Hij zegt, vers 3, Gij weet zelf dat wij hiertoe gesteld zijn, dat is tot het ondergaan van verdrukkingen. Het is de wil en de beschikking Gods, dat wij door vele verdrukkingen zullen ingaan in Zijn koninkrijk. Hun verdrukkingen en moeiten kwamen niet bij geval, niet enkel door de toorn en de boosaardigheid van hun vijanden, maar door de beschikking Gods. Alles kwam alleen zoals God het bepaald had; en zij wisten dat hij hun tevoren dit gezegd had; zodat zij niet moesten denken dat hen iets vreemds overkwam. Zij waren vooraf gewaarschuwd en dus vooraf gewapend. Het was verre van de apostelen om de mensen te vleien met de verwachting van aardse voorspoed door de godsdienst; integendeel: zij zegden hun ronduit dat ze veel verdrukking in het vlees zouden hebben. En hierin volgden zij het voorbeeld van hun grote Meester, de bewerker van het geloof. Bovendien was het een bevestiging voor hun geloof, wanneer zij bemerkten, dat het gebeurde zoals hun voorzegd was. 
 
 B. Om hun geloof te verstaan, zodat hij de apostel mocht berichten dat zij standvastig bleven onder al hun lijden, en dat hun geloof niet wankelde; omdat, wanneer zij staande bleven in het geloof, zij instaat zouden zijn om de verzoeker en al zijn verzoekingen het hoofd te bieden; hun geloof zou hen zijn een schild, met hetwelk zij al de vurige pijlen des bozen zouden kunnen uitblussen, Ef. 6:16. 
 
-1 Thess. 3:6-10 
+## 1 Thessalonicenzen 3:6-10 
 
 Hier zien wij Paulus’ grote voldoening bij de terugkomst van Timotheüs met goede berichten aangaande de Thessalonicensen, waarin wij kunnen opmerken: 
 
@@ -36,12 +53,12 @@ II. De grote troost en voldoening, welke de apostel genoot door die goede berich
 
 III. De gevolgen daarvan waren dankzegging aan en gebed tot God om hunnentwil. Merk op: 
 
-1. Hoe dankbaar de apostel was, vers 9. Hij was vervuld met blijdschap, prijs en dankzegging. Wanneer wij het meest verblijd zijn, behoren wij het dankbaarst te wezen. Wat ons verheugt moet ons tot dankzegging brengen. Dat is ons verblijden in God, onze blijdschap geestelijk maken. Paulus spreekt alsof hij niet onder woorden kon brengen hoe dankbaar hij jegens God was, en hoe hij zich om hunnentwil verblijdde. Maar hij was bezorgd dat God de heerlijkheid niet zou ontberen voor de vertroosting, welke het welzijn zijner vrienden hem geschonken had. Zijn hart was vervuld met liefde tot hen en met dankzegging voor God. Hij was gewillig om zowel het een als het andere tot uitdrukking te brengen. Wat de dankbaarheid aan God aangaat, die voornamelijk is in onze tegenwoordige toestand altijd onvolkomen, maar eenmaal in de hemel zullen wij die beter betonen dan ons ooit hier mogelijk is. 
+1\. Hoe dankbaar de apostel was, vers 9. Hij was vervuld met blijdschap, prijs en dankzegging. Wanneer wij het meest verblijd zijn, behoren wij het dankbaarst te wezen. Wat ons verheugt moet ons tot dankzegging brengen. Dat is ons verblijden in God, onze blijdschap geestelijk maken. Paulus spreekt alsof hij niet onder woorden kon brengen hoe dankbaar hij jegens God was, en hoe hij zich om hunnentwil verblijdde. Maar hij was bezorgd dat God de heerlijkheid niet zou ontberen voor de vertroosting, welke het welzijn zijner vrienden hem geschonken had. Zijn hart was vervuld met liefde tot hen en met dankzegging voor God. Hij was gewillig om zowel het een als het andere tot uitdrukking te brengen. Wat de dankbaarheid aan God aangaat, die voornamelijk is in onze tegenwoordige toestand altijd onvolkomen, maar eenmaal in de hemel zullen wij die beter betonen dan ons ooit hier mogelijk is. 
 
-2. Hij bad voor hen nacht en dag, vers 10; avond en morgen; zeer dikwijls, midden onder de werkzaamheden van de dag of in slapeloze uren des nachts hief hij het hart tot God voor hen omhoog. Zo moeten wij zonder ophouden bidden. En Paulus’ gebeden waren vurig. Hij bad met nadruk en was ernstig in zijn smekingen. Wanneer wij het dankbaarst zijn, moeten wij ons het meest tot het gebed begeven; en zij, voor wie wij dankzeggen, hebben tegelijkertijd behoefte aan onze gebeden. Zij, over welke wij ons het meest verheugen en die ons het meest tot vertroosting verstrekken, moeten voorwerpen van onze bestendige zorg zijn, omdat zij leven in een wereld van verzoeking en onvolmaaktheid. 
+2\. Hij bad voor hen nacht en dag, vers 10; avond en morgen; zeer dikwijls, midden onder de werkzaamheden van de dag of in slapeloze uren des nachts hief hij het hart tot God voor hen omhoog. Zo moeten wij zonder ophouden bidden. En Paulus’ gebeden waren vurig. Hij bad met nadruk en was ernstig in zijn smekingen. Wanneer wij het dankbaarst zijn, moeten wij ons het meest tot het gebed begeven; en zij, voor wie wij dankzeggen, hebben tegelijkertijd behoefte aan onze gebeden. Zij, over welke wij ons het meest verheugen en die ons het meest tot vertroosting verstrekken, moeten voorwerpen van onze bestendige zorg zijn, omdat zij leven in een wereld van verzoeking en onvolmaaktheid. 
 Er ontbrak ook nu nog iets aan hun geloof, want Paulus begeerde hun aangezichten te mogen zien, om te volmaken hetgeen aan hun geloof ontbrak, vers 10. Bij de beste mensen ontbreekt iets aan het geloof; hetzij aan het voorwerp des geloofs, dat sommige verborgenheden of leerstellingen niet voldoende gekend en geloofd worden; hetzij aan de helderheid en vastheid des geloofs, dat er enige duisterheid en twijfel overgebleven is; hetzij tenminste aan de vruchten en werkzaamheden des geloofs, dat die niet zo volkomen en zo merkbaar zijn als ze wezen konden. De bediening van het woord en der sacramenten kan daaraan verhelpen, en is begeerlijk en nuttig om te volmaken wat aan ons geloof ontbreekt. 
 
-1 Thess. 3:11-13 
+## 1 Thessalonicenzen 3:11-13 
 
 In deze woorden vinden wij het ernstig gebed van de apostel. Hij verlangt het werktuig te mogen zijn om meerderen zegen aan de Thessalonicensen te brengen; en het enige middel daartoe is, nu hij zo ver van hen verwijderd is, het gebed, vergezeld van zijn schrijven aan hen. Hij begeert dat zij mogen volmaakt worden, hoewel hij daar persoonlijk de bewerker niet van zijn kon. Hij gaf niet voor over hun geloof te heersen, of hun het geloof te kunnen geven, en daarom bad hij voor hen. Merk op: 
 
@@ -49,9 +66,9 @@ I. wie hij bad: God en de Heere Christus. Bidden is een gedeelte van de Godsvere
 
 II. Waar hij om bidt, zowel voor zichzelf en zijn medearbeiders, als voor de Thessalonicensen. 
 
-1. Hij bidt dat hij en zijn medearbeiders door de wil van God spoedig tot hen mogen komen; dat God hun weg richte tot hen, vers 11. Men zou denken, dat de reis naar de een of andere plaats iets was, dat van de wil des mensen afhing en in zijn eigen macht stond, en dat Paulus daarom niet behoefde te bidden. Maar de apostel wist dat wij in God leven, ons bewegen en zijn; dat wij van God afhankelijk zijn in al onze bewegingen en daden, zowel als voor de voorduur van ons leven; dat de Goddelijke Voorzienigheid al onze zaken regelt, en dat het alleen aan haar te danken is wanneer wij daarin voorspoedig zijn; dat God onze Vader bestuurt waar Zijn kinderen zullen gaan en wat zij zullen doen; en dat in het bijzonder Jezus Christus de daden regelt van Zijn getrouwe dienaren, die Hij als sterren in Zijn rechterhand houdt. Laat ons God erkennen in al onze wegen en Hij zal onze paden recht maken. 
+1\. Hij bidt dat hij en zijn medearbeiders door de wil van God spoedig tot hen mogen komen; dat God hun weg richte tot hen, vers 11. Men zou denken, dat de reis naar de een of andere plaats iets was, dat van de wil des mensen afhing en in zijn eigen macht stond, en dat Paulus daarom niet behoefde te bidden. Maar de apostel wist dat wij in God leven, ons bewegen en zijn; dat wij van God afhankelijk zijn in al onze bewegingen en daden, zowel als voor de voorduur van ons leven; dat de Goddelijke Voorzienigheid al onze zaken regelt, en dat het alleen aan haar te danken is wanneer wij daarin voorspoedig zijn; dat God onze Vader bestuurt waar Zijn kinderen zullen gaan en wat zij zullen doen; en dat in het bijzonder Jezus Christus de daden regelt van Zijn getrouwe dienaren, die Hij als sterren in Zijn rechterhand houdt. Laat ons God erkennen in al onze wegen en Hij zal onze paden recht maken. 
 
-2. Hij bidt om de voorspoed der Thessalonicensen. Hetzij hij gelegenheid moge krijgen om tot hen te komen of niet; ernstig bidt hij om het welzijn hunner zielen. En er zijn twee dingen, die hij voor hen begeert, en welke wij moeten begeren voor onszelf en voor onze vrienden. 
+2\. Hij bidt om de voorspoed der Thessalonicensen. Hetzij hij gelegenheid moge krijgen om tot hen te komen of niet; ernstig bidt hij om het welzijn hunner zielen. En er zijn twee dingen, die hij voor hen begeert, en welke wij moeten begeren voor onszelf en voor onze vrienden. 
 
 A. Dat zij overvloedig gemaakt worden in de liefde, vers 12; in liefde tot elkaar en tot alle mensen. Wederzijdse liefde is een vereiste voor alle Christenen, en niet alleen dat zij elkaar liefhebben, maar dat ze ook genegenheid voelen voor en levendig belangstellen in het welzijn van alle mensen. De liefde is uit God, en de vervulling van het Evangelie zowel als van de wet. Timotheüs bracht goede tijding omtrent hun geloof, hoewel het niet volmaakt was; en omtrent hun liefde, hoewel de apostel bidt dat die moge vermeerderen en overvloedig worden. Wij hebben reden om te verlangen naar wasdom in elke genade, en behoeven de invloed des Geestes om te wassen in de genade; en de weg om die te verkrijgen is het gebed. Wij ontvingen niet alleen de genade, die eerst ons deel werd, van God, maar moeten ook de vermeerdering daarvan alleen van Hem verwachten. En terwijl wij bidden, moeten wij ons benaarstigen. Om daartoe de Thessalonicensen aan te sporen, vermeldt de apostel hun opnieuw zijn liefde, zijn overvloedige liefde voor hen. 
 
