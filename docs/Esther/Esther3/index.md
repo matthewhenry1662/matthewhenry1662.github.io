@@ -18,7 +18,7 @@
 
 Hier opent zich een zeer donker en treurig tafereel, waarin het verderf, de ondergang, wordt gedreigd van al het volk van God. Indien er niet van die duistere nachten geweest waren, het morgenlicht zou niet zo welkom zijn geweest.
 
-I. Haman wordt des konings gunsteling, vers 1.
+I. Haman wordt des konings gunsteling, vers 1.  
 II. Mordechaï weigert hem de eer te bewijzen, die hij eist, vers 2-4.  
 III. Om zijnentwil zweert Haman wraak te oefenen aan al de Joden, vers 5.  
 IV. Door een boosaardig denkbeeld te opperen verkrijgt hij een order van de koning om hen op een bepaalde dag allen om te brengen vers 7-13.  
