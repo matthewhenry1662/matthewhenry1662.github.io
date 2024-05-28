@@ -11,7 +11,7 @@
 
 ## Inleiding
 
-Na de inleiding, vers 1, begint de apostel met dank¬zegging aan God voor de zegeningen van zaligmaking hun geschonken, vers 2-5. Daarop vermeldt hij zijn zekerheid van de goede loop van het Evangelie onder hen, die in verscheidene andere plaatsen alge¬meen bekend en beroemd was, vers 6-10.
+Na de inleiding, vers 1, begint de apostel met dankzegging aan God voor de zegeningen van zaligmaking hun geschonken, vers 2-5. Daarop vermeldt hij zijn zekerheid van de goede loop van het Evangelie onder hen, die in verscheidene andere plaatsen algemeen bekend en beroemd was, vers 6-10.
 In deze inleiding hebben wij:
 
 ## 1 Thessalonicenzen 1:1 
