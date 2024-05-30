@@ -19,7 +19,7 @@
 ## Inleiding
 
 I. De apostel voorzegt Timotheüs hoe de laatste dagen zijn zullen en de redenen daarvoor, vers 1-9;   
-II. En geeft hem daaromtrent verscheidene voorschriften, vers 10-17; voornamelijk zijn eigen voorbeeld ("Maar gij hebt achtervolgd mijn leer, enz.) en de kennis der Heilige Schrift, welke goed zijn om wijs te maken tot zaligheid en het beste tegenmiddel zijn tegen het bederf van de tijden, die wij beleven. In dit hoofdstuk deelt Paulus .Timotheüs mede hoe slecht anderen zouden zijn en daarom hoe goed hij moest zijn, en dat wij uit de slechtheid van anderen het voordeel moeten trekken om onze eigen oprechtheid te meer te versterken.   
+II. En geeft hem daaromtrent verscheidene voorschriften, vers 10-17; voornamelijk zijn eigen voorbeeld ("Maar gij hebt achtervolgd mijn leer, enz.) en de kennis der Heilige Schrift, welke goed zijn om wijs te maken tot zaligheid en het beste tegenmiddel zijn tegen het bederf van de tijden, die wij beleven. In dit hoofdstuk deelt Paulus Timotheüs mede hoe slecht anderen zouden zijn en daarom hoe goed hij moest zijn, en dat wij uit de slechtheid van anderen het voordeel moeten trekken om onze eigen oprechtheid te meer te versterken.   
 
 ## 2 Timotheüs 3:1-9 
 

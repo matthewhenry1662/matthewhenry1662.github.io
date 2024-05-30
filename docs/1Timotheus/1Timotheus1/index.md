@@ -21,7 +21,7 @@
 
 ## Inleiding
 
-Na het opschrift, vers 1, 2, hebben wij: 
+Na het opschrift, vers 1, 2, hebben wij:  
 I. De opdracht aan Timotheüs gegeven, vers 3, 4.  
 II. Het ware doel der wet, vers 5-11, waar hij aantoont hoe dit geheel met het Evangelie overeenkomt.  
 III. Hij vermeldt zijn eigen roeping tot apostel, waarvoor hij zijn dankbaarheid uitspreekt, vers 12-16.  
