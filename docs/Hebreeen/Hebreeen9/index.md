@@ -36,7 +36,7 @@ I. Over de tabernakel, de plaats van de eredienst, vers 1-2.
 II. Over de eredienst en de offers, die in de tabernakel gebracht werden, vers 6-7.  
 III. Over de geestelijke betekenis en bedoeling van dat alles, vers 8-28.  
 
-## Hebreeën 9:1-7. 
+## Hebreeën 9:1-7 
 
 I. De apostel geeft een beschrijving van de tabernakel, de plaats van aanbidding, welke God op aarde opgericht had, die genaamd wordt het wereldlijk heiligdom, geheel van deze wereld, van aardse bouwstoffen samengesteld en een gebouw, dat eens weer weggenomen moest worden. Een wereldlijk heiligdom, omdat het was het paleis van Israëls Koning. God was hun koning en had, gelijk andere koningen, Zijn hof en paleis, Zijn wacht, hofhouding en al wat daarbij behoort. De tabernakel, waarvan wij de beschrijving vinden in Exodus 25-27, was een beweegbare tempel, als afschaduwing van de ongevestigde staat der strijdende kerk en van de menselijke natuur van de Heere Jezus Christus, in welke de volheid der Godheid lichamelijk woonde.  Van deze tabernakel nu wordt gezegd dat hij in twee delen gedeeld was, genoemd de eersten en de tweeden tabernakel, een binnenste en een buitenste gedeelte, voorstellende de twee delen van de strijdende en de zegepralende kerk, en de twee naturen van Christus, Goddelijk en menselijk. Thans ons meegedeeld wat in elk van die beide delen geplaatst was. 
 
