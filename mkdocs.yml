@@ -1352,9 +1352,9 @@ nav:
     - '1 Petrus 5': '1Petrus/1Petrus5/index.md'
   - '2 Petrus': 
     - '2 Petrus': '2Petrus/index.md'
-    - '2 Petrus 1': '2 Petrus/2 Petrus1/index.md'
-    - '2 Petrus 2': '2 Petrus/2 Petrus2/index.md'
-    - '2 Petrus 3': '2 Petrus/2 Petrus3/index.md'
+    - '2 Petrus 1': '2 Petrus/2Petrus1/index.md'
+    - '2 Petrus 2': '2 Petrus/2Petrus2/index.md'
+    - '2 Petrus 3': '2 Petrus/2Petrus3/index.md'
   - '1 Johannes': 
     - '1 Johannes': '1Johannes/index.md'
     - '1 Johannes 1': '1Johannes/1Johannes1/index.md'
