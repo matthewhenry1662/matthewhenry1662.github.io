@@ -28,7 +28,7 @@ II. Een vermaning om te wassen en toe te nemen in alle Christelijke deugden, ver
 III. Om deze vermaning kracht bij te zetten en hen aan te moedigen om haar ernstig en van harte na te leven, voegt hij daarbij:  
 1\. Een voorstelling van het zeer grote voordeel. dat zij daardoor zouden verkrijgen, vers 8-11.   
 2\. Een belofte van de beste hulp, welke de apostel instaat was hun te geven om het toenemen in goede werken hun te vergemakkelijken, vers 12-15.  
-3\ Een verklaring van de zekere waarheid en de Goddelijke oorsprong van het Evangelie van Christus, in de genade waarvan zij werden aangemaand toe te nemen en te volharden.   
+3\. Een verklaring van de zekere waarheid en de Goddelijke oorsprong van het Evangelie van Christus, in de genade waarvan zij werden aangemaand toe te nemen en te volharden.   
 
 ## 2 Petrus 2:1-4 
 
