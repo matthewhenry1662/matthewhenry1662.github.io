@@ -41,9 +41,9 @@
 
 Wij hebben in dit hoofdstuk treffende voorbeelden van de macht en de ontferming van de Heere Jezus, wel geschikt om ons te overtuigen, dat Hij volkomen kan zalig maken degenen, die door Hem tot God gaan, en dat Hij daartoe ook volkomen en gewillig en bereid is: 
 
-I. In hetgeen Hij deed voor het lichaam der mensen, door hen te genezen van geraaktheid, vers 2-8, door de dochter van de overste op te wekken, en de bloedvloeiing der vrouw te genezen, vers 18-26, het gezicht te geven aan twee blinden, vers 27-31, de duivel uit te werpen uit een bezetene, vers 32-34, en allerlei krankheden te genezen vers 3 
+I. In hetgeen Hij deed voor het lichaam der mensen, door hen te genezen van geraaktheid, vers 2-8, door de dochter van de overste op te wekken, en de bloedvloeiing der vrouw te genezen, vers 18-26, het gezicht te geven aan twee blinden, vers 27-31, de duivel uit te werpen uit een bezetene, vers 32-34, en allerlei krankheden te genezen vers 3.  
 II. Voor de zielen der mensen, in het vergeven van zonde, vers 2, in de roeping van Matthéüs en in Zijn vrijen omgang met tollenaren en zondaren, vers 9-13, in het in aanmerking nemen van het lichaamsgestel Zijner discipelen in betrekking tot de plicht van het vasten, vers 14-17, in zijn prediking van het Evangelie, en in zijn ontferming over de schare, door hen te voorzien van predikers, vers 35-38.  
-Aldus bewees Hij zich te zijn, gelijk Hij ook ontwijfelbaar is, de Geneesmeester, beide van lichaam en ziel, die genoegzame geneesmiddelen bezit voor alle krankheden van beiden: waarvoor wij ons dus tot Hem moeten wenden, en Hem uit dankerkentenis moeten verheerlijken in ons lichaam en in onze geest, die Zijner zijn 
+Aldus bewees Hij zich te zijn, gelijk Hij ook ontwijfelbaar is, de Geneesmeester, beide van lichaam en ziel, die genoegzame geneesmiddelen bezit voor alle krankheden van beiden: waarvoor wij ons dus tot Hem moeten wenden, en Hem uit dankerkentenis moeten verheerlijken in ons lichaam en in onze geest, die Zijner zijn.  
 
 ## Matthéüs 9:1-8 
 
