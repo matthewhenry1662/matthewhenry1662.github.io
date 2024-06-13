@@ -38,10 +38,10 @@
 
 De Evangeliën zijn een kort bericht van hetgeen Jezus begonnen heeft beide te doen en te leren. In het vorige hoofdstuk hadden wij het verhaal van Zijn doen, in dit van Zijn leren, waarschijnlijk niet alles op dezelfden tijd en in een aaNeegeschakelde rede, maar op verschillende tijden, bij verschillende gelegenheden, en hier samengevoegd als van gelijken inhoud en strekking. Wij hebben hier:
 
-I. Leringen betreffende nederigheid, vers 1 – 6. 
+I. Leringen betreffende nederigheid, vers 1-6.  
 II. Betreffende ergernissen in het algemeen, vers 4, inzonderheid ergernissen, die gegeven worden:  
 1\. Door ons zelf aan ons zelf, vers 8, 9.  
-2\. Door ons aan anderen, vers 10 – 14.  
+2\. Door ons aan anderen, vers 10-14.  
 3\. Door anderen aan ons, en dezen zijn van tweeërlei aard: Ergerlijke zonden, die bestraft moeten worden, vers 15-20, en verongelijkingen, die wij moeten vergeven, vers 21-35. Zie hoe praktisch Christus’ prediking is geweest, Hij zou verborgenheden hebben kunnen openbaren, maar Hij sprak van, en drong aan op, eenvoudige plichten, inzonderheid op die, welke aan vlees en bloed het onaangenaamst zijn. 
 
 ## Matthéüs 18:1-6 

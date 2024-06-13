@@ -17,7 +17,7 @@
 17. En Jezus antwoordende zeide: O ongelovig en verkeerd geslacht, hoelang zal Ik nog met ulieden zijn? Hoelang zal Ik u nog verdragen? Brengt hem Mij hier.
 18. En Jezus bestrafte hem, en de duivel ging van hem uit, en het kind werd genezen van die ure af.
 19. Toen kwamen de discipelen tot Jezus alleen en zeiden: Waarom hebben wij hem niet kunnen uitwerpen?
-20 En Jezus zeide tot hen: Om uws ongeloofs wil; want voorwaar zeg Ik u, zo gij een geloof hadt als een mosterdzaad, gij zoudt tot dezen berg zeggen: Ga heen vanhier derwaarts, en hij zal heengaan; en niets zal u onmogelijk zijn.
+20. En Jezus zeide tot hen: Om uws ongeloofs wil; want voorwaar zeg Ik u, zo gij een geloof hadt als een mosterdzaad, gij zoudt tot dezen berg zeggen: Ga heen vanhier derwaarts, en hij zal heengaan; en niets zal u onmogelijk zijn.
 21. Maar dit geslacht vaart niet uit dan door bidden en vasten.
 22. En als zij in Galiléa verkeerden, zeide Jezus tot hen: De Zoon des mensen zal overgeleverd worden in de handen der mensen;
 23. En zij zullen Hem doden, en ten derden dage zal Hij opgewekt worden. En zij werden zeer bedroefd.
