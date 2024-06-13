@@ -53,7 +53,7 @@ Dit hoofdstuk en de twee volgende bevatten een leerrede, een zeer vermaarde, de 
 De omstandigheden, waaronder die rede werd uitgesproken, vermeld zijnde, vers 1, 2, volgt nu de rede zelf, waarvan de strekking is, niet om ons hoofd te vullen met denkbeelden, maar om onze praktijk te regelen en te leiden. 
 
 I. Hij stelt zaligheid voor als het doel, en beschrijft ons de aard van hen, die recht hebben op zaligheid (gans verschillend van de gevoelens van een ijdele wereld) in acht zaligsprekingen, die met recht paradoxen genoemd kunnen worden, vers 3-12.  
-II. Hij schrijft plicht voor als de weg, en geeft ons de blijvende regelen van dien plicht. Hij leidt Zijn discipelen, 
+II. Hij schrijft plicht voor als de weg, en geeft ons de blijvende regelen van dien plicht. Hij leidt Zijn discipelen,  
 1\. Om te verstaan wat zij zijn - het zout der aarde en het licht der wereld, vers 13-16.  
 2\. Om te verstaan wat zij hebben te doen - zij moeten zich laten regeren door de zedelijke wet. Hier is:  
 a. Een algemene bekrachtiging van de wet, en een aanbeveling dier wet aan ons, als onze leefregel, vers 17-20.  
