@@ -32,13 +32,13 @@
 ## Inleiding
 
 In dit hoofdstuk hebben wij:  
-I. Christus’ verandering van woonplaats, daar Hij Galiléa verliet en in de landpalen van Judea kwam, vers 1, 2. 
-II. Het gesprek met de Farizeeën over echtscheiding, en zijn rede tot de discipelen, naar aanleiding daarvan, vers 3 – 12. 
-III. Zijn vriendelijk onthaal van enige kinderen, die tot Hem gebracht werden, vers 13 15. 
-IV. Een bericht van hetgeen er voorviel tussen Christus en een jongeling, die tot Hem kwam, vers 16 – 22. 
+I. Christus’ verandering van woonplaats, daar Hij Galiléa verliet en in de landpalen van Judea kwam, vers 1, 2.  
+II. Het gesprek met de Farizeeën over echtscheiding, en zijn rede tot de discipelen, naar aanleiding daarvan, vers 3-12.  
+III. Zijn vriendelijk onthaal van enige kinderen, die tot Hem gebracht werden, vers 13-15.  
+IV. Een bericht van hetgeen er voorviel tussen Christus en een jongeling, die tot Hem kwam, vers 16-22.  
 V. Zijn gesprek met de discipelen bij die gelegenheid, betreffende de moeilijkheid om zalig te worden voor hen, die veel in de wereld hebben, en de gewisse beloning van hen, die om Christus wil alles verlaten, vers 23-30. 
 
-## Matthéüs 19:1 – 2
+## Matthéüs 19:1-2
 
 1\. Wij hebben hier het bericht van Christus’ vertrek uit Galiléa, waar Hij opgevoed was. Het grootste gedeelte van Zijn leven had Hij doorgebracht in die afgelegen en geminachte landstreek, slechts bij gelegenheid der feesten was het, dat Hij opging naar Jeruzalem, en wij kunnen veronderstellen dat, als Hij er kwam, zijn prediking en zijn wonderen er des te meer opzien baarden en des te meer welkom waren, wijl Hij er geen vaste woonplaats had. Maar het was een blijk van zijn vernedering - en gelijk in andere dingen, verscheen Hij ook hierin in geringen staat - dat Hij er heenging als Galileër, iemand uit het noorden des lands, waar het minst-beschaafde deel der natie woonde. 
 De meeste van Christus’ leerredenen waren tot aan dat tijdstip uitgesproken in Galiléa, en dáár waren ook de meeste van zijn wonderen gewrocht, maar nu, deze woorden geëindigd hebbende, vertrok Hij van Galiléa en het was Zijn laatst vaarwel, want (tenzij Zijn gaan door het midden van Galiléa, Lukas 17:11, hierna plaatshad, en dit was slechts een voorbijgaand bezoek, als Hij naar Jeruzalem reisde) is Hij nooit weer in Galiléa geweest dan na zijn opstanding, waardoor deze overgang dus zeer merkwaardig wordt. Christus heeft van Galiléa geen afscheid genomen, voordat Zijn werk aldaar volbracht was, en toen vertrok Hij vandaar. Evenals Christus’ getrouwe dienstknechten niet uit de wereld worden weggenomen, zo worden zij ook van geen enkele plaats verwijderd, voor zij hun getuigenis in die plaats hebben geëindigd, Openbaring 11:7. 
