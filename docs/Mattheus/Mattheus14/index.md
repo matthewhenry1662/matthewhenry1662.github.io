@@ -42,7 +42,8 @@ Johannes de Doper had van Christus gezegd: "Hij moet wassen, maar ik minder word
 I. Het martelaarschap van Johannes, zijn gevangenschap vanwege zijn getrouwheid tegenover Herodes, vers 1-5, en zijn onthoofding om aan Herodias te behagen, vers 6-12.  
 II. De wonderen van Christus.  
 1\. Zijn spijziging van vijfduizend mensen, die tot Hem kwamen om onderricht, met vijf broden en twee vissen, vers 13-21.  
-2\. Christus’ wandelen op de zee om in de storm tot Zijn discipelen te komen, vers 22-33. 3. Zijn genezing der zieken door de aanraking van de zoom van Zijn kleed, vers 34-36. 
+2\. Christus’ wandelen op de zee om in de storm tot Zijn discipelen te komen, vers 22-33.  
+3\. Zijn genezing der zieken door de aanraking van de zoom van Zijn kleed, vers 34-36. 
 
 ## Matthéüs 14:1-12 
 
