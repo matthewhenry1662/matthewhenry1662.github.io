@@ -49,11 +49,11 @@
 
 De dood en de opstanding van Jezus Christus zijn de twee voornaamste scharnieren, waarop de deur der behoudenis draait. Hij is in de wereld gekomen om Zijn leven te geven tot een rantsoen, dat had Hij kortelings gezegd, Hoofdstuk 20:28. Daarom wordt de geschiedenis van Zijn lijden tot de dood toe door al de evangelisten meer in bijzonderheden verhaald dan enig ander deel van zijn geschiedenis, en hiertoe haast de evangelist zich nu met rasse schreden. Want in dit hoofdstuk begint wat men gewoonlijk de lijdensweek noemt. Hij had meer dan eens aan Zijn discipelen gezegd: Ziet, wij gaan op naar Jeruzalem, en aldaar zal de Zoon des mensen overgeleverd worden. Zeer veel goed werk werd op de weg nog door Hem gedaan, nu is Hij eindelijk te Jeruzalem aangekomen, en hier hebben wij:  
 
-I. de openbaren intocht, dien Hij deed in Jeruzalem, op de eersten dag van de lijdensweek, vers 1 – 11.  
-II. Het gezag, dat Hij daar uitoefende in het reinigen van de tempel en het uitdrijven van de kopers en verkopers, vers 12 – 16.  
-III. Het zinnebeeld, dat Hij voorstelde van de toestand der Joodse kerk, in het vervloeken van de onvruchtbare vijgenboom, en zijn rede voor de discipelen hierover, vers 17 – 22.  
-IV. Zijn rechtvaardiging van Zijn gezag, door een beroep op de doop van Johannes, vers 23 – 27.  
-V. Zijn beschamen van het ongeloof en de hardnekkigheid der overpriesters en ouderlingen door het berouw der tollenaren, voorgesteld door de gelijkenis van de twee zonen, vers 28 – 32.  
+I. de openbaren intocht, dien Hij deed in Jeruzalem, op de eersten dag van de lijdensweek, vers 1-11.  
+II. Het gezag, dat Hij daar uitoefende in het reinigen van de tempel en het uitdrijven van de kopers en verkopers, vers 12-16.  
+III. Het zinnebeeld, dat Hij voorstelde van de toestand der Joodse kerk, in het vervloeken van de onvruchtbare vijgenboom, en zijn rede voor de discipelen hierover, vers 17-22.  
+IV. Zijn rechtvaardiging van Zijn gezag, door een beroep op de doop van Johannes, vers 23-27.  
+V. Zijn beschamen van het ongeloof en de hardnekkigheid der overpriesters en ouderlingen door het berouw der tollenaren, voorgesteld door de gelijkenis van de twee zonen, vers 28-32.  
 VI. Zijn aankondiging van het oordeel over de Joodse kerk wegens hare onvruchtbaarheid, in de gelijkenis van de wijngaard, verhuurd aan de ondankbare landlieden, vers 33-46. 
 
 ## Matthéüs 21:1-16 

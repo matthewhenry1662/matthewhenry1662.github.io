@@ -29,11 +29,11 @@
 ## Inleiding
 
 In dit hoofdstuk hebben wij:  
-I. Christus’ verheerlijking op de berg, vers 1 – 3.  
+I. Christus’ verheerlijking op de berg, vers 1-3.  
 II. Christus in zijn macht en genade de duivel uitwerpende uit een kind, vers 14-21, en  
 III. Christus in zijn armoede en vernedering,  
 1\. Zijn eigen lijden voorzeggende, vers 22, 23.  
-2\. Schatting betalende, vers 24 – 27. Zodat Christus hier is het afschijnsel van Zijns Vaders heerlijkheid, door zichzelf de reinigmaking onzer zonden teweegbrengende, onze schuld betalende, en voor ons degenen teniet doende, die het geweld des doods had, dat is, de duivel. 
+2\. Schatting betalende, vers 24-27. Zodat Christus hier is het afschijnsel van Zijns Vaders heerlijkheid, door zichzelf de reinigmaking onzer zonden teweegbrengende, onze schuld betalende, en voor ons degenen teniet doende, die het geweld des doods had, dat is, de duivel. 
 
 ## Matthéüs 17:1-13 
 

@@ -82,15 +82,15 @@ Dat ontzettend toneel wordt hier voorgesteld, om met eerbied en heilig ontzag ge
 
 I. De inleidingen tot Christus’ lijden:  
 1\. de voorafgaande kennis, die Hij er van geeft aan Zijn discipelen, vers 1, 2.  
-2\. De samenspanning der oversten tegen Hem, vers 3 – 5.  
-3\. De zalving van Zijn hoofd bij een avondmaal in Bethanië, vers 6 – 1.  
-4\. Judas’ onderhandeling met de priesters om Hem te verraden, vers 14 – 16.  
-5\. Christus het pascha etende met Zijn discipelen, vers 17 – 25.  
+2\. De samenspanning der oversten tegen Hem, vers 3-5.  
+3\. De zalving van Zijn hoofd bij een avondmaal in Bethanië, vers 6-1.  
+4\. Judas’ onderhandeling met de priesters om Hem te verraden, vers 14-16.  
+5\. Christus het pascha etende met Zijn discipelen, vers 17-25.  
 6\. Zijn instelling van het Avondmaal, en zijn gesprekken met de discipelen, vs 26-35.  
 II. Het lijden van Christus en enige bijzonderheden daarvan.  
-1\. Zijn doodsbenauwdheid in de hof, vers 36 – 46.  
-2\. Zijn gevangenneming door de beambten met behulp van Judas, vers 46 – 56.  
-3\. Zijn terechtstelling voor de hogepriester en zijn veroordeling, vers 37 – 68.  
+1\. Zijn doodsbenauwdheid in de hof, vers 36-46.  
+2\. Zijn gevangenneming door de beambten met behulp van Judas, vers 46-56.  
+3\. Zijn terechtstelling voor de hogepriester en zijn veroordeling, vers 37-68.  
 4\. Petrus’ verloochening van Hem, vers 69-75. 
 
 

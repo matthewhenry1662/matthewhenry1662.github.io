@@ -53,7 +53,7 @@ De toepassing van die rede was: Waakt, en zijt ook gij bereid. Nu hebben wij ter
 Nu is het voor ons van het uiterste belang om ons voor te bereiden op Christus’ wederkomst:  
 
 I. Ten einde alsdan bereid te zijn om Hem te vergezellen, en dit wordt aangetoond in de gelijkenis der tien maagden, vers 1-13. 
-II. Ten einde alsdan bereid te zijn om Hem rekenschap te geven, dit wordt aangetoond in de gelijkenis van de drie dienstknechten, vers 14 – 30.  
+II. Ten einde alsdan bereid te zijn om Hem rekenschap te geven, dit wordt aangetoond in de gelijkenis van de drie dienstknechten, vers 14-30.  
 III. Opdat wij alsdan bereid zijn, om ons eindoordeel van Hem te horen, en dat dit dan moge wezen ten eeuwigen leven, en dit wordt aangetoond in een duidelijker beschrijving van het laatste oordeel, vers 31-46.  
 Dat zijn dingen van ontzaglijk belang, omdat zij ons aller eeuwig wee of eeuwig welzijn betreffen.  
 

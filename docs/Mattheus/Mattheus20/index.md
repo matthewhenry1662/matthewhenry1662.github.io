@@ -36,10 +36,10 @@
 ## Inleiding
 
 In dit hoofdstuk hebben wij vier zaken:  
-I. De gelijkenis van de arbeiders in de wijngaard, vers 1 – 16.  
-II. Een voorzegging van het naderend lijden van Christus, vers 17 – 19.  
-III. Het verzoek van twee der discipelen, door hun moeder, dat door Christus bestraft wordt, vers 20 – 28.  
-IV. De bede van twee blinden verhoord, en hun ogen geopend, vers 29 - 34.  
+I. De gelijkenis van de arbeiders in de wijngaard, vers 1-16.  
+II. Een voorzegging van het naderend lijden van Christus, vers 17-19.  
+III. Het verzoek van twee der discipelen, door hun moeder, dat door Christus bestraft wordt, vers 20-28.  
+IV. De bede van twee blinden verhoord, en hun ogen geopend, vers 29-34.  
 
 ## Matthéüs 20:1-16 
 
@@ -139,7 +139,11 @@ Christus heeft geleden van de boosaardigheid der Joden en der heidenen, omdat Hi
 Hier, gelijk tevoren, maakt Hij tevens melding van zijn opstanding: Ten derden dage zal Hij weer opstaan. Hij gewaagt hiervan 
 a. om zich te bemoedigen onder zijn lijden, en het blijmoedig te kunnen dragen. Voor de vreugde, die Hem voorgesteld was, heeft Hij het kruis verdragen, Hij voorzag dat Hij zou opstaan, en dat wel spoedig, ten derden dage. Hij zal terstond verheerlijkt worden, Johannes 13:32. Het loon is niet slechts zeker, maar zeer nabij. 
 b. Om Zijn discipelen te bemoedigen en hen te troosten, die als overstelpt en grotelijks verschrikt zouden zijn door Zijn lijden. 
-c. Om ons te zeggen, dat wij onder alle lijden van dezen tegenwoordigen tijd het gelovig vooruitzicht moeten behouden op de heerlijkheid, die geopenbaard staat te worden, te zien op de dingen, die men niet ziet, en die eeuwig zijn, hetgeen ons instaat zal stellen, om de tegenwoordige verdrukking licht te achten en zeer haast voorbijgaande. Matthéüs 20:20-28 Hier hebben wij, ten eerste, het verzoek der twee discipelen aan Christus, en de herstelling van de vergissing, waarop het gegrond was, vers 20-23. De zonen van Zebedeüs waren Jakobus en Johannes, twee van de eerste drie van Christus’ discipelen. Petrus en zij waren zijn gunstgenoten, Johannes was de discipel, dien Jezus lief had, en toch werd niemand zo dikwijls door Hem bestraft als zij, die Christus lief heeft bestraft Hij het meest, Openbaring 3:19. 
+c. Om ons te zeggen, dat wij onder alle lijden van dezen tegenwoordigen tijd het gelovig vooruitzicht moeten behouden op de heerlijkheid, die geopenbaard staat te worden, te zien op de dingen, die men niet ziet, en die eeuwig zijn, hetgeen ons instaat zal stellen, om de tegenwoordige verdrukking licht te achten en zeer haast voorbijgaande. 
+
+## Matthéüs 20:20-28 
+
+Hier hebben wij, ten eerste, het verzoek der twee discipelen aan Christus, en de herstelling van de vergissing, waarop het gegrond was, vers 20-23. De zonen van Zebedeüs waren Jakobus en Johannes, twee van de eerste drie van Christus’ discipelen. Petrus en zij waren zijn gunstgenoten, Johannes was de discipel, dien Jezus lief had, en toch werd niemand zo dikwijls door Hem bestraft als zij, die Christus lief heeft bestraft Hij het meest, Openbaring 3:19. 
 
 I. De eerzuchtige bede aan Christus - dat zij mogen zitten, de een tot zijn rechter - en de ander tot zijn linkerhand in Zijn koninkrijk, vers 20, 21. Het was een grote mate van geloof, dat zij vertrouwen hadden in Zijn koninkrijk, hoewel Hij nu in geringheid verscheen, maar ook een grote mate van onwetendheid, dat zij nog altijd een tijdelijk koninkrijk verwachtten, met wereldse pracht en macht, terwijl Christus hun toch zo dikwijls gesproken had van lijden en zelfverloochening. Zij verwachten rijksgroten te zullen worden. Zij vragen niet om werk, een ambtsbetrekking in dit koninkrijk, maar alleen om eer, en in dit denkbeeldige koninkrijk kan geen andere dan de hoogste plaats hen voldoen, het naast aan Christus, en boven ieder ander. 
 Het is mogelijk, dat het laatste woord van Christus’ vorige rede de aanleiding was tot dit verzoek, namelijk dat Hij ten derden dage weer op zou staan. Zij maakten hieruit op, dat zijn opstanding Zijn ingang zou wezen in Zijn koninkrijk, en daarom besloten zij om intijds naar de hoogste plaats te dingen, en zich haar niet te laten ontgaan door er niet terstond om te vragen. Wat Christus zei om hen te vertroosten, hebben zij aldus misbruikt, en werden er door opgeblazen. 
