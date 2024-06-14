@@ -51,17 +51,17 @@
 Wat wij in het vorige hoofdstuk van het lijden van Christus gelezen hebben, was slechts het begin of de inleiding, hier hebben wij de voltooiing. Wij lieten Hem, veroordeeld door de overpriesters, doch zij konden slechts hun tanden tonen, bijten konden zij niet. 
 
 Wij zien Hem nu hier:  
-I. Aangeklaagd voor Pilatus, de Romeinsen stadhouder, vers 1-5. 
-II. Het verwijtend geroep van het gemene volk tegen Hem, op aanhitsen der priesters, vers 6-14. 
-III. Hij wordt veroordeeld om onmiddellijk gekruisigd te worden, vers 15. 
-IV. Hij wordt bespot en beledigd als schijnkoning door de Romeinse soldaten, vers 16-19. 
-V. Hij wordt met allen mogelijken hoon en smaad naar de plaats der terechtstelling gevoerd, vers 20-24. 
-VI. Aan het kruis genageld tussen twee moordenaren, vers 25-28. 
-VII. Bespot en beledigd door de voorbijgangers, vers 29-32. 
-VIII. Voor een wijle verlaten door Zijn Vader, vers 33-36. 
-IX. Stervende, en scheurende het voorhangsel, vers 37, 38. 
-X. Het getuigenis voor Hem van de overste over honderd en anderen, vers 39-41. 
-XI. Begraven in het graf van Jozef van Arimathea, vers 42-47.
+I. Aangeklaagd voor Pilatus, de Romeinsen stadhouder, vers 1-5.  
+II. Het verwijtend geroep van het gemene volk tegen Hem, op aanhitsen der priesters, vers 6-14.  
+III. Hij wordt veroordeeld om onmiddellijk gekruisigd te worden, vers 15.  
+IV. Hij wordt bespot en beledigd als schijnkoning door de Romeinse soldaten, vers 16-19.  
+V. Hij wordt met allen mogelijken hoon en smaad naar de plaats der terechtstelling gevoerd, vers 20-24.  
+VI. Aan het kruis genageld tussen twee moordenaren, vers 25-28.  
+VII. Bespot en beledigd door de voorbijgangers, vers 29-32.  
+VIII. Voor een wijle verlaten door Zijn Vader, vers 33-36.  
+IX. Stervende, en scheurende het voorhangsel, vers 37, 38.  
+X. Het getuigenis voor Hem van de overste over honderd en anderen, vers 39-41.  
+XI. Begraven in het graf van Jozef van Arimathea, vers 42-47. 
 
 ## Markus 15:1-14 
 

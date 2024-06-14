@@ -62,7 +62,7 @@ V. De herhaalde kennisgeving aan Zijn discipelen van Zijn naderend lijden en ste
 VI. de raad, dien Hij gaf aan Jakobus en Johannes, om veeleer te denken aan lijden met Hem, dan aan heersen met Hem, vers 35-45.  
 VII. De genezing van Bartimeus, een armen blinde, vers 46-52. Van dit alles hebben wij tevoren de substantie gehad in Matthéüs 19 en 20.  
 
-## Markus 10:1 – 12
+## Markus 10:1-12
 
 Onze Heere Jezus was een reizend prediker, Hij bleef niet lang in een plaats, want het gehele land Kanaän was zijn parochie of diocese, en daarom wilde Hij er elk deel van bezoeken, en ook aan hen, die in de verst verwijderde hoeken woonden, onderricht geven. Hier zien wij Hem in de landpalen van Judea, aan de overzijde van de Jordaan, oostwaarts, gelijk wij Hem kort tevoren aan de uiterste grenzen westwaarts gevonden hebben, nabij Tyrus en Sidon. Zo was dus zijn rondreis als van de zon, voor wier licht en warmte niets verborgen is. 
 

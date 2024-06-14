@@ -49,7 +49,7 @@ II. De voorzeggingen zelven.
 4\. Betreffende de verwoesting van Jeruzalem, vers 14.  
 5\.  Betreffende het einde der wereld, vers 24-27.  
 III. Enige algemene aanduidingen betreffende de tijd van deze dingen, vers 28-32.  
-VI. Enige praktische gevolgtrekkingen uit dit alles, vers 33-37.  
+IV. Enige praktische gevolgtrekkingen uit dit alles, vers 33-37.  
 
 ## Markus 13:1-4 
 
