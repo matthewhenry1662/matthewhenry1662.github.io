@@ -48,19 +48,19 @@
 
 Markus’ verhaal begint niet, zoals dat van Matthéüs en Lukas met de geboorte van de Zaligmaker, maar met die van Johannes de Doper, en dan gaat het spoedig over tot Christus’ openbare bediening. Zo hebben wij dan in dit hoofdstuk: 
 
-I. Het ambt van Johannes de Doper, opgehelderd door de profetie, hem betreffende, vers 1 - 3, en door zijn geschiedenis, vers 4 - 8.  
-II. de doop van Christus, en zijn erkenning door de hemel, vers 9 - 11.  
+I. Het ambt van Johannes de Doper, opgehelderd door de profetie, hem betreffende, vers 1 - 3, en door zijn geschiedenis, vers 4-8.  
+II. de doop van Christus, en zijn erkenning door de hemel, vers 9-11.  
 III. Zijn verzoeking, vers 12, 13.  
 IV zijn prediking, vers 14, 15, 21. 22, 38, 39.  
-V. Zijn roeping van de discipelen, vers 15 - 20.  
+V. Zijn roeping van de discipelen, vers 15-20.  
 VI. Zijn gebed, vers 35.  
 VII. Zijn werken van wonderen.  
-1\. Zijn bestraffing van een onreine geest, vers 23 - 28.  
-2\. Zijn genezing van Petrus’ schoonmoeder, vers 29 - 31.  
-3\. Zijn genezing van allen, die tot Hem kwamen, vers 32 - 34.  
-4\. Zijn reiniging van een melaatse, vers 40 - 45.  
+1\. Zijn bestraffing van een onreine geest, vers 23-28.  
+2\. Zijn genezing van Petrus’ schoonmoeder, vers 29-31.  
+3\. Zijn genezing van allen, die tot Hem kwamen, vers 32-34.  
+4\. Zijn reiniging van een melaatse, vers 40-45.  
 
-## Markus 1:1 - 8 
+## Markus 1:1-8 
 
 Hier kunnen wij opmerken: 
 I. Wat het Nieuwe Testament is - het Goddelijk testament, waaraan wij meer dan aan alles wat bloot menselijk is gehecht moeten zijn, het Nieuwe Testament dat wij boven het Oude stellen. Het is het Evangelie van Jezus Christus, de Zoon van God, vers 1. 
@@ -92,7 +92,7 @@ De grote belofte, die Christus geeft in Zijn Evangelie aan hen, die zich bekeerd
 
 3\. In de voorspoed op Johannes’ prediking en in de discipelen, die hij door de doop heeft aangenomen, was reeds het begin der Evangeliekerk. Hij doopte in de woestijn, en weigerde in de steden te gaan, maar al het Joodse land ging tot hem uit, en die van Jeruzalem, inwoners van de stad en van het land, en zij werden allen van hem gedoopt. Zij gaven zich op als Zijn discipelen, en stelden zich onder zijn tucht, ten teken waarvan zij hun zonden beleden. Hij liet hen toe als Zijn discipelen, ten teken waarvan hij hen doopte. Hier waren de bestanddelen der Evangeliekerk, de dauw harer jeugd uit de baarmoeder des dageraads. Psalm 110:3. Velen van dezen werden naderhand volgelingen van Christus en predikers van het Evangelie en zo is dit mostaardzaad tot een groten boom geworden. 
 
-## Markus 1:9 - 13 
+## Markus 1:9-13 
 
 Wij hebben hier een kort bericht van Christus’ doop en verzoeking, die uitvoerig verhaald werden in Matthéüs 3 en 4. l. Zijn doop, waarbij Hij voor het eerst in het openbaar optrad, nadat Hij lang onbekend en als verborgen in Nazareth had geleefd. O, hoeveel verborgen waardigheid is er, die in deze wereld of als begraven is onder het stof der minachting, en dus niet bekend kan wezen, of gehuld is in de sluier der nederigheid, en niet bekend wil wezen! Vroeg of laat zal zij echter gekend worden, zoals ook Christus gekend werd. 
 1\. Zie hoe ootmoedig Hij God erkende door te komen om van Johannes gedoopt te worden, aldus betaamde het Hem alle gerechtigheid te vervullen. Aldus is Hij gekomen in gelijkheid des zondigen vlezes, opdat Hij, hoewel volmaakt rein en onbevlekt, toch gewassen werd alsof Hij verontreinigd was, en heeft Hij om onzentwil zichzelf geheiligd, opdat ook wij geheiligd mogen zijn en met Hem gedoopt zijn, Johannes 17:19. 
@@ -107,7 +107,7 @@ II. Zijn verzoeking. De goede Geest, die op Hem nederdaalde, dreef Hem uit in de
 
 2\. De goede geesten waren bezig met Hem, de engelen dienden Hem, voorzagen Hem van hetgeen Hij behoefde, en deden dienst bij Hem. De dienst der goede engelen is een grote vertroosting bij de gedachte aan de boze raadslagen der boze engelen tegen ons, maar nog veel weldadiger is het voor ons om de Geest in ons hart te hebben, en die Hem alzo hebben, zijn uit God geboren, en – voor zover zij dit zijn vat de boze hen niet, en nog veel minder zal hij over hen triomferen. 
 
-## Markus 1:14 - 22
+## Markus 1:14-22
 
 Hier is: 
 I. Een bericht in het algemeen van Christus’ prediking in Galiléa. Johannes geeft een bericht van zijn prediking in Judea, voor dien tijd, Hoofdstuk 2 en 3, dat door de andere evangelisten nagelaten is, daar dezen voornamelijk mededelen wat in Galiléa is voorgevallen, omdat dit het minst bekend was in Jeruzalem. 
@@ -120,7 +120,7 @@ a. De grote waarheden, die Christus predikte: De tijd is vervuld, en het koninkr
 b. De grote plichten, die daaruit voortvloeien. Christus gaf hun de tijden te verstaan, opdat zij zouden weten wat Israël doen moet. Zij hebben dwaselijk verwacht, dat de Messias in uitwendige praal en macht zou verschijnen, niet slechts om de Joodse natie van het Romeinse juk te verlossen, maar haar ook heerschappij te doen hebben over al hare naburen. Daarom dachten zij, toen dit koninkrijk Gods nabij was, dat zij zich nu te bereiden hadden op krijgsoverwinning en verhoging, en grote dingen in deze wereld, maar Christus zegt hun, dat zij in het vooruitzicht van dit koninkrijk, dat nabij komt, zich moeten bekeren en het Evangelie geloven. Zij hadden de zedelijke wet overtreden, en konden door geen verbond van onschuld behouden worden, want beide Jood en heiden zijn onder de zonde besloten. Zij moeten dus gebruik maken van het voorrecht, dat het verbond der genade hun biedt, zij moeten zich onderwerpen aan een wet der genezing of herstelling, dat is berouw, en bekering tot God en geloof in onze Heere Jezus Christus. Zij hadden geen gebruik gemaakt van de voorgeschreven voorbehoedmiddelen, en moeten dus nu hun toevlucht nemen tot de voorgeschreven middelen tot herstel. 
 Door berouw en bekering moeten wij onze zonden betreuren en nalaten, en door geloof moeten wij er de vergeving van ontvangen. Door berouw en bekering moeten wij eer geven aan onze Schepper, dien wij hebben beledigd, door geloof moeten wij eer geven aan onze Verlosser, die gekomen is om ons zalig te maken van onze zonden. Deze beiden moeten samengaan. Wij moeten niet denken, dat verbetering van ons leven ons zal behouden, als wij daarbij niet tevens betrouwen op de gerechtigheid en genade van Christus, en evenmin moeten wij geloven, dat het vertrouwen op Christus ons zal behouden, als dit niet gepaard gaat met vernieuwing van ons hart en verbetering van ons leven. Christus heeft deze twee tezamen gevoegd en niemand mag ze van elkaar scheiden. Wederkerig zullen zij elkaar steunen en helpen. De bekering zal het geloof verlevendigen, en het geloof zal de bekering evangelisch doen zijn, en van beiden moet de oprechtheid blijken uit een naarstige, nauwgezette gehoorzaamheid aan al de geboden Gods. Aldus is de prediking van het Evangelie begonnen, en aldus gaat zij voort. Nog altijd luidt de roepstem: Bekeert u en gelooft, leeft een leven van bekering en een leven van geloof. 
 
-II. Christus verschijnende als Leraar, hebben wij hier vervolgens zijn roeping van de discipelen, vers 16 - 20. 
+II. Christus verschijnende als Leraar, hebben wij hier vervolgens zijn roeping van de discipelen, vers 16-20. 
 Merk op: 
 1\. Christus wil volgelingen hebben. Als Hij een school opricht, wil Hij leerlingen hebben, als Hij een standaard opricht, wil Hij krijgsknechten hebben, als Hij predikt, wil Hij hoorders hebben. Hij heeft krachtige, afdoende maatregelen getroffen, om zich die te verzekeren, want allen, die de Vader Hem gegeven heeft, zullen zonder mankeren tot Hem komen. 
 
@@ -139,7 +139,7 @@ III. Hier is een bijzonder bericht van zijn prediking in Kapernaüm, een der ste
 Wie bedenkt hoe veel werk er te doen is, en hoe weinig tijd er is om het te doen, zal er wel zorg voor dragen geen tijd te verliezen. Christus heeft met grote nauwgezetheid de sabbat waargenomen, hoewel Hij zich daarbij niet door de overleveringen der ouden liet binden ten opzichte van al de nietige bijzonderheden omtrent de sabbatsrust, maar (hetgeen veel beter was) door zich toe te leggen op en overvloedig te zijn in het sabbatswerk, waartoe de sabbatsrust was ingegesteld. De sabbat moet geheiligd worden in de Godsdienstige bijeenkomsten, indien wij daar de gelegenheid toe hebben, Het is een heilige dag, en hij moet geëerd worden door een heilige samenroeping. 
 Dit was de goede oude gewoonte, Handelingen 13:27, 15:21. Op de sabbatdag tois sabbasin - op de sabbatdagen, elke sabbatdag, even regelmatig als hij terugkeerde, ging Hij in de synagoge. ln de Godsdienstige vergaderingen op de sabbatdagen moet het Evangelie worden gepredikt, en moeten diegenen onderwezen worden, die gewillig zijn de waarheid te leren, gelijk zij is in Jezus. Christus was een prediker zoals er geen ander geweest is, Hij heeft niet gepredikt zoals de Schriftgeleerden, die de wet van Mozes verklaarden op de wijze zoals een schooljongen zijn les opzegt, maar er noch mede bekend waren, (Paulus zelf was, toen hij nog een Farizeeër was, er onbekend mede) noch er door aangedaan of gesticht werden. Het kwam niet uit het hart, en daarom kwam het ook niet met gezag. Maar Christus leerde ons als machthebbende, als die de bedoeling Gods kende, en gezonden was om haar bekend te maken. Er is in de leer van Christus veel dat verbazingwekkend is, hoe meer wij haar horen, hoe meer reden wij zullen zien om haar te bewonderen. 
 
-## Markus 1:23 - 28 
+## Markus 1:23-28 
 
 Zodra Christus begon te prediken, begon Hij ook wonderen te doen ter bevestiging van zijn leer, en zij waren van zulk een aard, dat er het doel en de strekking van zijn leer door aangeduid werden, namelijk Satan ten onder te brengen en zieke zielen te genezen. In deze verzen zien wij: 
 I. Christus, de duivel uitwerpende uit een bezetene in de synagoge te Kapernaüm. Dit voorval wordt niet meegedeeld door Matthéüs, maar wèl vinden wij het vermeld in Lukas 4:34. Er was in hun synagoge een mens met een onreinen geest, en pneumati akathartoo - in een onreinen geest, want de geest had de mens in zijn bezit en leidde hem gevangen naar zijn wil. Zo wordt de gehele wereld gezegd te liggen in het boze, of in de boze, en tooi ponerooi. En sommigen hebben gedacht dat het juister is te zeggen: Het lichaam is in de ziel, omdat het er door geregeerd wordt, dan de ziel is in het lichaam. Hij was in de onreinen geest, zoals men zegt, dat iemand in koorts is, of in razernij, dat is: hij is er gans door overweldigd. De duivel wordt hier een onreine geest genoemd, omdat hij al de reinheid van zijn oorspronkelijke natuur heeft verloren, in lijnrechte tegenstelling handelt met de Heilige Geest Gods, en omdat hij door zijn inblazingen de geest der mensen verontreinigt. Deze mens was in de synagoge, hij kwam er noch om onderwezen noch om genezen te worden, maar, gelijk sommigen denken, om zich tegen Christus te stellen en het volk te verhinderen om in Hem te geloven. 
@@ -157,7 +157,7 @@ II. De indruk, dien dit wonder teweegbracht op het gemoed des volks, vers 27, 28
 
 2\. Zijn roem werd nu verbreid onder allen. Zijn gerucht ging terstond uit in het gehele omliggende land van Galiléa, dat een derde deel uitmaakte van het land Kanaän. Het verhaal ging weldra van mond tot mond, en de mensen schreven het aan hun vrienden in het gehele land met de opmerking: Wat nieuwe leer is deze? Zodat men algemeen tot de gevolgtrekking kwam, dat Hij een Leraar was van God gezonden, en in die hoedanigheid schitterde Hij met helderder glans, dan indien Hij in de uitwendige praal en pracht was verschenen, waarin de Joden de Messias verwachtten. Aldus bereidde Hij zichzelf de weg, nu Johannes, die Zijn voorloper of heraut was, in de gevangenis zat. En de roem van dit wonder verspreidde zich des te verder, daar de Farizeeën, die Zijn roem benijdden en zich beijverden hem te verduisteren, hun lasterlijke bedenksels nog niet hadden uitgesproken, dat Hij de duivelen uitwierp door een verbond met de overste der duivelen. 
 
-## Markus 1:29 - 39 
+## Markus 1:29-39 
 
 In deze verzen hebben wij:
 I. Een bijzonder bericht van een wonder, door Christus gewrocht, in de genezing van de moeder van Simons vrouw, die de koorts had Dit verhaal hadden wij reeds in Matthéüs.
@@ -187,7 +187,11 @@ b. Het was vroeg, als het nog diep in de nacht was. Als anderen nog sliepen in h
 
 IV. Zijn terugkeren tot Zijn openbare arbeid. 
 De discipelen dachten, dat zij vroeg op waren, maar zij bevonden, dat hun Meester voor hen opgestaan was, en toen onderzochten zij waar Hij was heengegaan. Zij zijn Hem nagevolgd naar Zijn eenzame plaats, en vonden Hem in het gebed, vers 36, 37. Zij zeiden Hem, dat er veel naar Hem gevraagd werd, en dat een grote menigte kranken Hem wachtte. Zij zoeken U allen. Zij waren fier, dat hun Meester reeds zo hoog in aanzien stond bij het volk, en zij wensten, dat Hij te dezer plaatse nog meer in het openbaar zou verschijnen, omdat het hun eigen stad was, en wij zijn geneigd tot voorliefde voor de plaatsen, die wij kennen en waarin wij belangstellen. 
-Nee, zegt Christus, Kapernaüm moet niet alleen het voorrecht hebben van de prediking en de wonderen van de Messias. Laat ons in de bijliggende vlekken gaan, de dorpen hier in de omtrek, opdat Ik ook daar predike en er wonderen doe, want daartoe ben Ik uitgegaan, niet om voortdurend in een plaats verblijf te houden, maar om het land door te gaan goed doende. Zelfs de inwoners der dorpen in Israël zullen tezamen spreken van de gerechtigheden des Heeren, Richteren 5:11. Christus had het doel voor ogen, waartoe Hij was uitgegaan, en dat doel heeft Hij gestadig nagejaagd, daarvan zal Hij door de drang of de overreding Zijner vrienden niet worden afgeleid, want, vers 39. Hij predikte in hun synagogen door geheel Galiléa, en om zijn leer te bevestigen en op te helderen, wierp Hij duivelen uit. Christus’ leer is Satans verderf. Markus 1:40 - 45 Hier hebben wij het verhaal van Christus’ reiniging van een melaatse, dat wij tevoren gehad hebben in Matthéüs 8:2 - 4. 
+Nee, zegt Christus, Kapernaüm moet niet alleen het voorrecht hebben van de prediking en de wonderen van de Messias. Laat ons in de bijliggende vlekken gaan, de dorpen hier in de omtrek, opdat Ik ook daar predike en er wonderen doe, want daartoe ben Ik uitgegaan, niet om voortdurend in een plaats verblijf te houden, maar om het land door te gaan goed doende. Zelfs de inwoners der dorpen in Israël zullen tezamen spreken van de gerechtigheden des Heeren, Richteren 5:11. Christus had het doel voor ogen, waartoe Hij was uitgegaan, en dat doel heeft Hij gestadig nagejaagd, daarvan zal Hij door de drang of de overreding Zijner vrienden niet worden afgeleid, want, vers 39. Hij predikte in hun synagogen door geheel Galiléa, en om zijn leer te bevestigen en op te helderen, wierp Hij duivelen uit. Christus’ leer is Satans verderf. 
+
+## Markus 1:40-45 
+
+Hier hebben wij het verhaal van Christus’ reiniging van een melaatse, dat wij tevoren gehad hebben in Matthéüs 8:2-4. 
 Het leert ons:
 1\. Hoe ons tot Christus te wenden. Kom zoals deze melaatse 
 a. Met grote ootmoed. De melaatse kwam biddende, en vallende voor Hem op de knieën, vers 40, hetzij Hem Goddelijke eer bewijzende, of wellicht een minderen graad van eerbied als aan een groot profeet. Hoe dit zij, het leert ons dat zij, die genade en barmhartigheid van Christus wensen te verkrijgen, Hem eer en heerlijkheid moeten toeschrijven, en Hem met ootmoed en eerbied moeten naderen. 
