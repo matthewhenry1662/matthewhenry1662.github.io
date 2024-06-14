@@ -24,7 +24,7 @@
 In dit hoofdstuk hebben wij een kort verhaal van de opstanding en hemelvaart van de Heere Jezus en de blijdschap en triomf, die hierdoor aan alle gelovigen bereid is, zullen zeer aangenaam wezen voor hen, die in de vorige hoofdstukken met Christus geleden hebben. 
 
 Hier is:  
-I Christus’ opstanding aangekondigd door een engel aan de vrouwen, die tot het graf kwamen om Hem te zalven, vers 1-8.  
+I. Christus’ opstanding aangekondigd door een engel aan de vrouwen, die tot het graf kwamen om Hem te zalven, vers 1-8.  
 II. Zijn verschijning aan Maria Magdalena, en het bericht, dat zij er van gaf aan de discipelen, vers 9-11.  
 III. Zijn verschijning aan de twee discipelen op weg naar Emmaus, en het bericht, dat zij er van gaven aan hun broederen, vers 12, 13.  
 IV. Zijn verschijning aan de elven en de opdracht, die Hij hun gaf om Zijn koninkrijk in de wereld op te richten, met de volledige instructies en geloofsbrieven hiervoor, vers 14-18.  
