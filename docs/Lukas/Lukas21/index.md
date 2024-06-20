@@ -42,10 +42,10 @@
 In dit hoofdstuk hebben wij:  
 I. de opmerkzaamheid en de goedkeuring, die Christus schonk aan een arme weduwe, die twee kleine penningen in de schatkist wierp. vers 1-4.  
 II. Een voorzegging van toekomstige gebeurtenissen in antwoord op een vraag Zijner discipelen hieromtrent, vers 5-7.  
-1\ Van hetgeen er gebeuren zou tussen dezen tijd en de verwoesting van Jeruzalem - valse Christussen opstaande, bloedige oorlogen en vervolging van Christus’ volgelingen. vers 8-19.  
+1\. Van hetgeen er gebeuren zou tussen dezen tijd en de verwoesting van Jeruzalem - valse Christussen opstaande, bloedige oorlogen en vervolging van Christus’ volgelingen. vers 8-19.  
 2\. Van die verwoesting zelf, vers 20-24.  
 3\. Van de wederkomst van Jezus Christus om de wereld te oordelen, onder het type en beeld daarvan, vers 25-38.  
-III. Een praktische toepassing hiervan, bij wijze van waarschuwing en raadgeving, vers 3436, en een bericht van Christus’ prediking, en hoe het volk Hem hoorde, vers 37-39.  
+III. Een praktische toepassing hiervan, bij wijze van waarschuwing en raadgeving, vers 34-36, en een bericht van Christus’ prediking, en hoe het volk Hem hoorde, vers 37-39.  
 
 ## Lukas 21:1-4 
 Dit korte verhaal hebben wij tevoren in Markus gehad. Het wordt tweemaal meegedeeld om ons te leren:

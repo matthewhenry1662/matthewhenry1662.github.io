@@ -85,7 +85,7 @@ Het verhaal dat deze evangelist ons geeft (of liever, dat God ons door hem geeft
 
 In dit hoofdstuk hebben wij: 
 
-I. Lukas’ inleiding tot zijn evangelie, of zijn brief van opdracht aan zijn vriend Theophilus. 1-4.  
+I. Lukas’ inleiding tot zijn evangelie, of zijn brief van opdracht aan zijn vriend Theofilus. 1-4.  
 II. De profetie en de geschiedenis van de ontvangenis van Johannes de Doper, die de voorloper van Christus is geweest. vers 5-25.  
 III. De aankondiging aan de maagd Maria, dat zij de moeder van de Messias zal worden, vers 26-38.  
 IV. De samenkomst van Maria, de moeder van Jezus, en Elisabeth, de moeder van Johannes, toen zij beiden zwanger waren, en de profetieën, door beiden bij die gelegenheid uitgesproken, vers 39-56.  

@@ -51,7 +51,7 @@
 In dit hoofdstuk hebben wij:  
 I. Christus’ antwoord op de vraag der overpriesters naar zijn macht of gezag, vers 1-8.  
 II. De gelijkenis van de wijngaard verhuurd aan onrechtvaardige en oproerige landlieden, vers 9-19.  
-III. Christus’ antwoord op de vraag, die Hem gedaan werd betreffende het al of niet geoorloofde om de keizer schatting te geven, vers 20-26. 
+III. Christus’ antwoord op de vraag, die Hem gedaan werd betreffende het al of niet geoorloofde om de keizer schatting te geven, vers 20-26.  
 IV. Zijn handhaving van de grote fundamentele leerstelling van de Joodse en Christelijke instellingen - de opstanding der doden en de toekomenden staat, tegenover de dwaze vitterij der Sadduceeën, vers 27-38.  
 V. Hoe Hij de schriftgeleerden in verlegenheid bracht met de vraag, hoe de Messias de zoon van David is, vers 39-44.  
 VI. Zijn waarschuwing aan de discipelen om zich in acht te nemen voor de schriftgeleerden, vers 45-47, hetgeen wij alles reeds in Mattheüs en Markus hebben gehad, waarom wij er hier niet breedvoerig over zullen spreken, behalve over de bijzonderheden, die wij daar niet gehad hebben. 

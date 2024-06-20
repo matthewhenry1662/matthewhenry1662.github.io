@@ -48,10 +48,10 @@
 Wij verlieten Christus toen Hij pas gedoopt was, en door een stem van de hemel en de nederdaling des Heiligen Geestes op Hem als Gods geliefde Zoon werd erkend. 
 
 In dit hoofdstuk nu hebben wij:  
-I. Een verdere toebereiding van Hem voor Zijn openbare bediening door Zijn verzocht worden in de woestijn, waarvan wij hetzelfde verhaal hebben in Mattheüs, vers 1-13. 
-II. Zijn ingaan tot Zijn openbaren arbeid in Galiléa, vers 14, 15, inzonderheid:
-1\. Te Nazareth, de stad, waar Hij opgevoed was, vers 16-30, waarvan wij geen melding vinden gemaakt in Mattheüs. 
-2\. Te Kapernaüm, waar Hij na bewonderenswaardig gepredikt te hebben, vers 31, 32, de duivel uitwierp uit een bezetene, vers 33-37, de schoonmoeder van Petrus genas van de koorts, vers 38, 39, en nog vele anderen, die ziek of bezeten waren, vers 40, 41, waarna Hij in andere steden van Galiléa hetzelfde deed, vers 42-44. 
+I. Een verdere toebereiding van Hem voor Zijn openbare bediening door Zijn verzocht worden in de woestijn, waarvan wij hetzelfde verhaal hebben in Mattheüs, vers 1-13.   
+II. Zijn ingaan tot Zijn openbaren arbeid in Galiléa, vers 14, 15, inzonderheid:  
+1\. Te Nazareth, de stad, waar Hij opgevoed was, vers 16-30, waarvan wij geen melding vinden gemaakt in Mattheüs.  
+2\. Te Kapernaüm, waar Hij na bewonderenswaardig gepredikt te hebben, vers 31, 32, de duivel uitwierp uit een bezetene, vers 33-37, de schoonmoeder van Petrus genas van de koorts, vers 38, 39, en nog vele anderen, die ziek of bezeten waren, vers 40, 41, waarna Hij in andere steden van Galiléa hetzelfde deed, vers 42-44.  
 
 ## Lukas 4:1-13 
 
