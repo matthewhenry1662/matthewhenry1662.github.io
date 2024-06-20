@@ -22,7 +22,7 @@ De bijbelverklaring zal in 2 fases volledig online worden gezet.
 
 In deze fase zal de volledige bijbelverklaring online worden gezet.
 
-<label for="file">Voortgang fase 1: 49/66 Bijbelboeken</label><progress id="file" value="49" max="66" style="width:80%; height:25px;"></progress> 
+<label for="file">Voortgang fase 1: 50/66 Bijbelboeken</label><progress id="file" value="50" max="66" style="width:80%; height:25px;"></progress> 
 
 ### Fase 2. Verbeteren van de leesbaarheid
   

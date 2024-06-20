@@ -41,15 +41,15 @@
 ## Inleiding
 
 In dit hoofdstuk hebben wij:  
-I. Christus predikende uit het schip van Petrus, bij gebrek aan een beteren kansel, vers 1 - 3.  
-II. Zijn beloning aan Petrus voor dit lenen van zijn schip, bestaande in een wonderbare visvangst, waarmee Hij hem en zijn deelgenoten te kennen gaf, dat Hij voornemens was hen tot vissers van mensen te maken, vers 4 - 11.  
-III. Zijn reinigen van een melaatse, vers 12 - 15.  
+I. Christus predikende uit het schip van Petrus, bij gebrek aan een beteren kansel, vers 1-3.  
+II. Zijn beloning aan Petrus voor dit lenen van zijn schip, bestaande in een wonderbare visvangst, waarmee Hij hem en zijn deelgenoten te kennen gaf, dat Hij voornemens was hen tot vissers van mensen te maken, vers 4-11.  
+III. Zijn reinigen van een melaatse, vers 12-15.  
 IV. Een kort bericht van Zijn bidden in de eenzaamheid en Zijn openbaren dienst, vers 16, 17.  
-V. Zijn genezing van de geraakte, vers 18 - 26.  
-VI. Zijn roeping van Levi, de tollenaar, en Zijn verkeer met tollenaren bij die gelegenheid, vers 27 - 32.  
-VII. Zijn rechtvaardigen van Zijn discipelen wegens hun minder - herhaaldelijk vasten dan de discipelen van Johannes en der Farizeeën, vers 33 - 39.  
+V. Zijn genezing van de geraakte, vers 18-26.  
+VI. Zijn roeping van Levi, de tollenaar, en Zijn verkeer met tollenaren bij die gelegenheid, vers 27-32.  
+VII. Zijn rechtvaardigen van Zijn discipelen wegens hun minder-herhaaldelijk vasten dan de discipelen van Johannes en der Farizeeën, vers 33-39.  
 
-## Lukas 5:1 - 11 
+## Lukas 5:1-11 
 
 De gebeurtenis, die hier wordt verhaald, heeft naar tijdsorde plaats gehad voor de twee wonderen, die aan het einde van het vorige hoofdstuk vermeld zijn, en is dezelfde, die ons meer in het kort door Mattheüs en Markus wordt meegedeeld, namelijk Christus’ roeping van Petrus en Andreas om vissers van mensen te zijn, Mattheüs 4:18, Markus 1:16. Zij hadden toen de wonderdadige visvangst er niet bij verhaald, daar zij slechts de roeping Zijner discipelen op het oog hadden, maar Lukas geeft ons deze geschiedenis als een der vele tekenen, die Jezus in de tegenwoordigheid Zijner discipelen gedaan heeft, en die niet in de voorafgaande boeken geschreven zijn, Johannes 20:30, 31. 
 
@@ -65,7 +65,7 @@ III. Hoe Christus hierop zeer bijzonder kennis maakte met deze vissers. Zij hadd
 
 Wij kunnen hier opmerken:
 a. Hoe treurig en verdrietig hun arbeid was geweest, Meester, wij hebben de gehelen nacht over gearbeid, de gehelen nacht, toen wij in ons bed hadden moeten zijn om te slapen, en niet gevangen, wij hebben vergeefse moeite gedaan. Men zou zo gedacht hebben, dat dit een verontschuldiging voor hen zou geweest zijn, om niet naar de leerrede te gaan luisteren, maar zij hadden zoveel liefde voor het woord van God, dat het verfrisschender en verkwikkender voor hen was na dien vermoeiende nacht, dan de zoetste slaap zou geweest zijn. Maar zij zeggen het aan Christus, nu Hij hun beveelt om weer te gaan vissen. 
-Sommige bedrijven zijn veel vermoeiender dan andere, en veel meer gevaarlijk, maar Gods voorzienigheid heeft het voor het algemene welzijn zo beschikt, dat er geen nuttig bedrijf is, al is het ook nog zo ontmoedigend, of er zijn sommigen, die er bijzonder aanleg en geschiktheid voor hebben. Zij, die hun beroep uitoefenen, en er met grote gemakkelijkheid veel winst mede behalen, behoren met medelijden te denken aan hen, die het hun niet anders dan onder grote vermoeienis kunnen uitoefenen, terwijl zij er toch nauwelijks het dagelijks brood mede verdienen. Als wij de gehelen nacht hebben gerust, laat ons dan hen niet vergeten, die de gehelen nacht hebben gearbeid, zoals Jakob, toen hij Labans schapen heeft gehoed. Maar hoe zwaar het beroep ook zij, het is goed om er de mensen naarstig in te zien zodat zij er het meest - mogelijke nut en voordeel uit trekken. 
+Sommige bedrijven zijn veel vermoeiender dan andere, en veel meer gevaarlijk, maar Gods voorzienigheid heeft het voor het algemene welzijn zo beschikt, dat er geen nuttig bedrijf is, al is het ook nog zo ontmoedigend, of er zijn sommigen, die er bijzonder aanleg en geschiktheid voor hebben. Zij, die hun beroep uitoefenen, en er met grote gemakkelijkheid veel winst mede behalen, behoren met medelijden te denken aan hen, die het hun niet anders dan onder grote vermoeienis kunnen uitoefenen, terwijl zij er toch nauwelijks het dagelijks brood mede verdienen. Als wij de gehelen nacht hebben gerust, laat ons dan hen niet vergeten, die de gehelen nacht hebben gearbeid, zoals Jakob, toen hij Labans schapen heeft gehoed. Maar hoe zwaar het beroep ook zij, het is goed om er de mensen naarstig in te zien zodat zij er het meest-mogelijke nut en voordeel uit trekken. 
 Deze vissers, die zich op die wijze vlijtig getoond hebben, heeft Christus tot zijn gunstgenoten verkoren. Zij waren geschikt om bevorderd te worden tot goede krijgsknechten van Jezus Christus, daar zij aldus geleerd hadden verdrukkingen of ontberingen te lijden. Zelfs zij, die het vlijtigst zijn in hun beroep, hebben er dikwijls teleurstellingen in, zij, die de gehelen nacht over gearbeid hebben, hebben toch niet gevangen, want de loop is niet altijd der snellen. God wil ons naarstig hebben, uit zuivere gehoorzaamheid aan Zijn gebod en in afhankelijkheid van zijn goedheid, veeleer dan door de verzekering van wereldse voorspoed. Wij moeten onze plicht doen en dan verder de zaak aan God overgeven. Als wij vermoeid zijn van ons wereldlijk beroep, en teleurstelling ondervinden in onze wereldse zaken, dan zijn wij welkom om tot Christus te komen, en onze zaak voor Hem bloot te leggen, die er kennis van zal nemen. 
 
 b. Hoe geredelijk zij gehoorzaamheid betoond hebben aan het gebod van Christus: Doch op Uw woord zal ik het net uitwerpen. Hoewel zij de gehelen nacht over gearbeid hadden, zullen zij toch, indien Christus het gebiedt, de arbeid hervatten, want zij weten, dat die op de Heere wachten, de kracht vernieuwd zal worden, gelijk het werk hunner handen vernieuwd wordt, voor iedere nieuwen dienst zullen zij een nieuwen voorraad van genoegzame genade ontvangen. Hoewel zij niets hebben gevangen, zullen zij, indien Christus hun gebiedt het net uit te werpen, hopen nu iets te zullen vangen. Wij moeten niet snel of plotseling ons beroep verlaten, omdat wij er de voorspoed niet in hebben, dien wij verwacht hadden. De bedienaren van het Evangelie moeten voortgaan met het net uit te werpen, al hebben zij wellicht lang gearbeid en niets gevangen, en dit is genade, als wij onvermoeid voort arbeiden, al zien wij er ook geen vruchten van. Zij hebben hierin het oog op Christus’ woord, en steunen er op: "Op Uw woord zal ik het net uitwerpen, omdat Gij het gebiedt, en Gij het aanmoedigt." Wij zullen waarschijnlijk welslagen, als wij de leiding van Christus’ woord volgen. 
@@ -74,7 +74,7 @@ b. Hoe geredelijk zij gehoorzaamheid betoond hebben aan het gebod van Christus: 
 
 Nu heeft Christus door deze grote trek van vissen:
 a. Bedoeld Zijn heerschappij te tonen over de zee, zowel als over het land, over haar schatten en over haar baren. Aldus wilde Hij tonen de Zoon des mensen te zijn, onder wiens voeten alles gezet was, inzonderheid de vissen der zee, en hetgeen de paden der zeeën doorwandelt, Psalm 8:9. 
-b. Hij bedoelde hiermede de leer te bevestigen, die Hij zo - even van uit Petrus’ schip had gepredikt. Wij kunnen wel veronderstellen, dat het volk aan de oever, dat de leerrede gehoord had, en er wel enig besef van had, dat de prediker een profeet was van God gezonden, nauwkeurig zijn bewegingen heeft gadegeslagen, en daar bleef vertijdjen om te zien wat Hij nu ging doen, en dit wonder, dat zo onmiddellijk volgde, zal een bevestiging zijn geweest van hun geloof, dat Hij minstens een profeet was van God gezonden. 
+b. Hij bedoelde hiermede de leer te bevestigen, die Hij zo-even van uit Petrus’ schip had gepredikt. Wij kunnen wel veronderstellen, dat het volk aan de oever, dat de leerrede gehoord had, en er wel enig besef van had, dat de prediker een profeet was van God gezonden, nauwkeurig zijn bewegingen heeft gadegeslagen, en daar bleef vertijdjen om te zien wat Hij nu ging doen, en dit wonder, dat zo onmiddellijk volgde, zal een bevestiging zijn geweest van hun geloof, dat Hij minstens een profeet was van God gezonden. 
 c. Hij bedoelde hiermede Petrus te belonen voor het lenen van zijn boot, want heden zal Christus’ Evangelie, zoals voorheen zijn ark in het huis van Obed Edom, voorzeker een rijke vergoeding geven voor een vriendelijk onthaal. Niemand zal een deur toesluiten of een vuur aansteken in Gods huis om niet, Maleachi 1:10. Christus’ beloningen voor diensten, bewezen aan Zijn naam, zijn zeer ruim en overvloedig. 
 d. Hij wilde hiermede een proeve geven aan hen, die zijn gezanten zullen zijn in de wereld, van de voorspoed op, het welslagen van, hun zending, dat zij, hoewel zij voor een tijd en aan een bijzondere plaats arbeiden en niet vangen, toch het middel zullen zijn om velen tot Christus te brengen, en velen in het Evangelienet te besluiten. 
 
@@ -90,10 +90,10 @@ De gevolgtrekking, die hij er uit afleidde, zou juist hebben kunnen zijn, hoewel
 
 7\. Eindelijk. Het vaarwel der vissers aan hun beroep, teneinde Christus voortdurend te vergezellen, vers 11, Als zij de schepen aan land gestuurd hadden, verlieten zij alles, en volgden Hem. In plaats van een markt te zoeken voor hun vis om zoveel mogelijk winst te behalen uit dit wonder, hebben zij alles verlaten en zijn Hem gevolgd, meer verlangend om de belangen van Christus te dienen, dan hun eigen wereldlijk belang te bevorderen. Het is opmerkelijk, dat zij alles verlieten om Christus te volgen, toen het hun zo voorspoedig ging in hun beroep, meer zelfs dan ooit tevoren. Als het vermogen overvloedig aanwast, en wij dus het meest in verzoeking zijn er het hart op te zetten, en wij het verlaten ter wille van de dienst van Christus, dan is dit genade. 
 
-## Lukas 5:12 - 16 
+## Lukas 5:12-16 
 
 Hier is: 
-I. De genezing van een melaatse, vers 12 - 14. Het verhaal er van hebben wij beide in Mattheüs en Markus gehad. Hier wordt gezegd, dat het in een der steden was, vers 12. Het was in Kapérnaüm, maar de evangelist wilde de stad niet noemen, misschien wel omdat dit een blaam zou werpen op het bestuur dier stad, dat er een melaatse in was toegelaten. Van dezen man wordt gezegd, dat hij vol van melaatsheid was. Hij had die ziekte in hoge mate, hetgeen een des te juister voorstelling is van onze natuurlijke verontreiniging door de zonde, wij zijn vol van deze melaatsheid, van onze hoofdschedel af tot de voetzool toe is er niets geheels in ons. 
+I. De genezing van een melaatse, vers 12-14. Het verhaal er van hebben wij beide in Mattheüs en Markus gehad. Hier wordt gezegd, dat het in een der steden was, vers 12. Het was in Kapérnaüm, maar de evangelist wilde de stad niet noemen, misschien wel omdat dit een blaam zou werpen op het bestuur dier stad, dat er een melaatse in was toegelaten. Van dezen man wordt gezegd, dat hij vol van melaatsheid was. Hij had die ziekte in hoge mate, hetgeen een des te juister voorstelling is van onze natuurlijke verontreiniging door de zonde, wij zijn vol van deze melaatsheid, van onze hoofdschedel af tot de voetzool toe is er niets geheels in ons. 
 
 Laat ons nu hieruit leren:
 1\. Wat wij te doen hebben ten opzichte van onze geestelijke melaatsheid. 
@@ -123,7 +123,7 @@ Zij kwamen samen om Hem te horen en onderwijs van Hem te ontvangen betreffende h
 
 b. Hoewel niemand ooit in het openbaar zoveel goed gedaan heeft, heeft Hij toch tijd gevonden voor Godvruchtige afzondering tot gebed, vers 1- 6. Hij vertrok in de woestijnen, en bad aldaar. Niet alsof Hij het nodig had om hetzij tegen afleiding of praalvertoning te moeten waken, maar Hij wilde ons een voorbeeld geven, daar wij het wel nodig hebben om onze gebedsoefeningen zo in te richten, dat wij tegen die beide verkeerdheden op onze hoede kunnen zijn. Wij zullen ook verstandig doen, als wij onze zaken zo regelen, dat ons openbaar werk en ons verborgen werk elkaar niet in de weg zijn. Het verborgen gebed moet in het verborgen geschieden, en zij, die nog zoveel te doen hebben in het beste werk der wereld, moeten daar toch altijd een bepaalden tijd voor afgezonderd houden. 
 
-## Lukas 5:17 - 26 
+## Lukas 5:17-26 
 
 Hier is: 
 I. Een algemeen bericht van Christus’ prediking en wonderen, vers 17. 
@@ -135,9 +135,9 @@ II. Een bijzonder bericht van de genezing van de geraakte, dat over het algemeen
 1\. De leerstellingen, die ons door het verhaal dezer genezing geleerd en bevestigd worden:
 a. Dat zonde de bron en oorzaak is van alle krankheden, en de vergeving der zonde de enige grond is, waarop herstel uit ziekte vertroostend gebouwd kan worden. Zij legden vervuld met vreze, met eerbied en ontzag voor God, met een overtuiging dat Hij de Messias was, waaraan de vrees gepaard ging, dat Hij door de natie niet behandeld werd zoals Hij behoorde behandeld te worden, hetgeen in het einde hun verderf en ondergang tengevolge zou hebben. Wellicht waren het soortgelijke gedachten, die hen vervulden met vreze, en tevens met bezorgdheid voor zich zelf. 
 
-## Lukas 5:27 - 39 
+## Lukas 5:27-39 
 
-Dit alles, behalve het laatste vers, hebben wij reeds in Mattheüs en Markus gehad. Het is niet een verhaal van een wonder in de natuur, dat door onze Heere Jezus werd gewrocht, maar wel van sommige der wonderen van genade, die, voor hen, die deze dingen recht begrijpen, geen minder - sterke bewijzen zijn dan de andere, dat Christus van God gezonden is. 
+Dit alles, behalve het laatste vers, hebben wij reeds in Mattheüs en Markus gehad. Het is niet een verhaal van een wonder in de natuur, dat door onze Heere Jezus werd gewrocht, maar wel van sommige der wonderen van genade, die, voor hen, die deze dingen recht begrijpen, geen minder-sterke bewijzen zijn dan de andere, dat Christus van God gezonden is. 
 
 I. Het was een wonder van Zijn genade, dat Hij een tollenaar uit het tolhuis riep, om Zijn discipel en volgeling te zijn, vers 27. Het was een wonderbare goedheid, dat Hij arme vissers, mannen van de nederigste stand, tot die eer toeliet, maar nog veel meer verwonderlijk was het, dat Hij tollenaren, mannen die alles behalve ter goeder naam en faam bekend stonden, toeliet. Hierin heeft Christus zich vernederd, verscheen Hij in gelijkheid des zondigen vleses. Hierdoor heeft Hij er zich aan blootgesteld om de hatelijken naam te verkrijgen - dien Hij dan ook verkregen heeft - van een vriend van tollenaren en zondaren te zijn. 
 
