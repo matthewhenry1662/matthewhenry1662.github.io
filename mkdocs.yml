@@ -33,9 +33,9 @@ theme:
     - navigation.top
     - navigation.footer
     - navigation.tracking
-    - navigation.instant
-    - navigation.instant.prefetch
-    - navigation.instant.progress
+#    - navigation.instant
+#    - navigation.instant.prefetch
+#    - navigation.instant.progress
     # - navigation.expand
     # - navigation.tabs.sticky
     - toc.follow
