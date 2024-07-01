@@ -36,8 +36,8 @@ theme:
 #    - navigation.instant
 #    - navigation.instant.prefetch
 #    - navigation.instant.progress
-    # - navigation.expand
-    # - navigation.tabs.sticky
+#    - navigation.expand
+#    - navigation.tabs.sticky
     - toc.follow
     - search.suggest
     - search.highligt
@@ -47,11 +47,11 @@ theme:
     - content.code.copy
     - content.tooltips
     - content.action.edit
-    # - content.footnote.tooltips
-    # - content.code.select
+#   - content.footnote.tooltips
+#   - content.code.select
   language: nl
   palette:
-     # Palette toggle for light mode
+#   Palette toggle for light mode
     - media: "(prefers-color-scheme: light)"
       scheme: default
       primary: black
@@ -59,7 +59,7 @@ theme:
       toggle:
         icon: material/weather-night
         name: Donkere modus
-    # Palette toggle for dark mode
+#   Palette toggle for dark mode
     - media: "(prefers-color-scheme: dark)"
       scheme: slate
       primary: black
@@ -67,6 +67,39 @@ theme:
       toggle:
         icon: material/weather-sunny
         name: Lichte modus
+
+
+# Additional configuration
+extra:
+   analytics:
+    provider: google
+    property: G-2336KH3R5S
+
+# Markdown Extensions
+markdown_extensions:
+  - pymdownx.emoji:
+      emoji_index: !!python/name:material.extensions.emoji.twemoji 
+      emoji_generator: !!python/name:material.extensions.emoji.to_svg
+  - pymdownx.highlight:
+      linenums: true
+  - admonition
+  - pymdownx.details
+  - pymdownx.superfences
+  - pymdownx.mark
+  - footnotes
+  - attr_list
+  - md_in_html
+  - toc:
+      permalink: true
+
+# Plugins
+plugins:
+  - git-revision-date-localized:
+      enable_creation_date: true
+      type: date
+      timezone: Europe/Amsterdam
+      locale: nl
+  - search
 
 
 # Navigation menu
@@ -1397,37 +1430,6 @@ nav:
 #    - 'Openbaring 22': 'Openbaring/Openbaring22/index.md'
 
 
-# Additional configuration
-extra:
-   analytics:
-    provider: google
-    property: G-2336KH3R5S
-
-# Markdown Extensions
-markdown_extensions:
-  - pymdownx.emoji:
-      emoji_index: !!python/name:material.extensions.emoji.twemoji 
-      emoji_generator: !!python/name:material.extensions.emoji.to_svg
-  - pymdownx.highlight:
-      linenums: true
-  - admonition
-  - pymdownx.details
-  - pymdownx.superfences
-  - pymdownx.mark
-  - footnotes
-  - attr_list
-  - md_in_html
-  - toc:
-      permalink: true
-
-# Plugins
-plugins:
-  - git-revision-date-localized:
-      enable_creation_date: true
-      type: date
-      timezone: Europe/Amsterdam
-      locale: nl
-  - search
 
 
 
